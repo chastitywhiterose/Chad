@@ -68,4 +68,5 @@ It worked and all my files were in master. However, I wanted them in main. I cou
 
 `git clone https://github.com/chastitywhiterose/Chad.git`
 
-However, I can now add, commit, and push to update my repository without having to access the website from my web browser!
+However, I can now add, commit, and push to update my repository without having to access the website from my web browser! Although I am still new to using git, it seems convenient once I know the commands I must learn to use.
+
