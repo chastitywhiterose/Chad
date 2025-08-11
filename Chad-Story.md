@@ -360,14 +360,11 @@ friends know because they always came to his games to cheer him on.
 He called Matt, Luke, and John. Of course, they spread the word to
 everyone else in the small town that on August 2nd, Chad would be
 playing as the team captain as usual. Luke's father, Levi, was the
-coach for the town's team and the biggest sports fan there was, so
-people quickly found out about the event.
+coach for the town's team and the biggest sports fan there was, so people quickly found out about the event.
 
-In the meantime, Matt greatly improved his soccer game skills thanks to
-his practicing weekly with Chad. Chad complimented him greatly.
+In the meantime, Matt greatly improved his soccer game skills thanks to his practice with Chad. 
 
-Chad: I see you have really improved with your kicking aim. Are you
-ready for a challenge?
+Chad: I see you have really improved with your kicking aim. Are you ready for a challenge?
 
 Matt: What kind of challenge did you have in mind?
 
@@ -375,7 +372,7 @@ Chad: I want you to play against my dog, Gold General.
 
 Matt: I didn't know your dog played soccer!
 
-****Chad:**** He does! I mean, he can't kick the ball with a human
+Chad: He does! I mean, he can't kick the ball with a human
 foot, but he makes a great goalie. He can bounce back any ball, even if
 it's flying through the air. Come here, boy! Stand at the goal and try
 to block Matt's kicks!
@@ -389,14 +386,9 @@ Chad: 3 out of 10 isn't bad. Good job, Matt.
 
 Matt: It doesn't sound good.
 
-****Chad:**** Are you kidding me? This dog has reflexes better than Luke
-or John. He can block things more efficiently because he hears the sound
-of the ball and knows what direction it is going in. More importantly,
-if Gold General had not been there, you would have made all ten. You
-were in the window of the goal because your aim has improved. You don't
-miss the goal entirely anymore.
+Chad: Are you kidding me? This dog has reflexes better than Luke or John can. He can block things more efficiently because he hears the sound of the ball and knows what direction it is going in. More importantly, if Gold General had not been there, you would have made all ten. You were in the window of the goal because your aim has improved. You don't miss the goal entirely anymore.
 
-Matt: Thanks Chad! I owe it all to your help. By the way, I am totally
+Matt: Thanks, Chad! I owe it all to your help. By the way, I am totally
 coming to your game against the Dragons next week!
 
 Chad: You better! I don't want to drag you there myself!
@@ -404,16 +396,14 @@ Chad: You better! I don't want to drag you there myself!
 Matt: Count on it, Chad!
 
 The day came for the big soccer game. It was not a big event by any
-means nationally and you would not have heard about it in the news, but
+means nationally, and you would not have heard about it in the news, but
 to the people in Podunk, this is their greatest thrill. Luke also played
-in this game because he was second only to Chad when it came to strength
-and speed. Of course, by being the son of the coach, his father would
-have made him come to the game whether he was playing or not.
+in this game because he was second only to Chad when it came to strength and speed. Of course, by being the son of the coach, his father would have made him come to the game whether he was playing or not.
 
 The game went on for 4 hours, and everyone was tired. However, Podunk
 won 36 to 25. The other team was good too, but they couldn't match the
-leadership and strategy of Chad nor the strength of the kick from
-Podunk's best players, some of who practiced every single day.
+leadership and strategy of Chad, nor the strength of the kick from
+Podunk's best players, some of whom practiced every single day.
 
 Because everyone was hungry, the whole town had a meal. It was nothing
 special because it was all hamburgers and hot dogs. Chad went to his car
@@ -426,18 +416,16 @@ friends sat around him as he ate. It was always a spectacle to see Chad
 devour a watermelon because nobody ate like him. This time, Stacy also
 sat down with them, and they all had a conversation.
 
-****John:**** How do you keep up your strength, Chad? I would expect you
-to eat 8 hotdogs after a game like that.
+John: How do you keep up your strength, Chad? I would expect you to eat 8 hot dogs after a game like that.
 
-****Chad:**** John, have you ever tried eating a whole watermelon? It is
+Chad: John, have you ever tried eating a whole watermelon? It is
 full of water, which is what I need after playing in this heat.
 
 John: Fair enough, Chad. I guess I should try it sometime!
 
-Luke: Come to think of it, I have never even seen you eat meat. How do
-you get your protein?
+Luke: Come to think of it, I have never even seen you eat meat. How do you get your protein?
 
-****Chad:**** Have you ever tried Tofu sandwiches, Luke?
+Chad: Have you ever tried Tofu sandwiches, Luke?
 
 Luke: What kind of sissy do you think I am? Real men eat meat. I bet I
 could beat you in a one-on-one match.
@@ -445,18 +433,13 @@ could beat you in a one-on-one match.
 Stacy: What's wrong with being a sissy, Luke? Don't you have a sister?
 That's what a sissy literally means.
 
-Luke: Yeah, that's fine for women, but men need calories because we do
-the most physical of tasks and need more food.
+Luke: Yeah, that's fine for women, but men need calories because we do the most physical tasks and need more food.
 
-****Chad:**** And you think women don't do hard work? They do housework
-and give birth to babies. I think they should be given a watermelon and
-a tofu sandwich after that.
+Chad: And you think women don't do hard work? They do housework and give birth to babies. I think they should be given a watermelon and a tofu sandwich after that.
 
 Luke: Chad, since when did you become a feminist?
 
-****Chad:**** What's that? Anyhow if you will kindly leave me to my
-watermelon, the sissy princess needs her food after dominating the
-soccer game. But I will take you up on the soccer challenge.
+Chad: What's that? Anyhow, if you will kindly leave me to my watermelon, the sissy princess needs her food after dominating the soccer game. But I will take you up on the soccer challenge.
 
 Stacy: Nice response, Chad. Most guys would have gotten angry at being
 insulted like Luke was doing to you.
@@ -466,32 +449,31 @@ attention for sports. In fact, he deserves credit for part of the
 victory. He is a great guy as long as he plays sports and keeps his
 mouth shut.
 
-Stacy: That's what I am worried about. From the abundance of the heart,
-the mouth speaks.
+Stacy: That's what I am worried about. From the abundance of the heart, the mouth speaks.
 
-****John:**** Luke would do well to read the book he was named after.
+John: Luke would do well to read the book he was named after.
 
 Chad: So would you, John!
 
-****John:**** You're not wrong, Chad! My favorite verse is actually
+John: You're not wrong, Chad! My favorite verse is actually
 John 3:16: "For God so loved the world, that he gave his only begotten
 Son, that whosoever believeth in him should not perish, but have
 everlasting life.
 
-****Chad:**** Great way to tell me you don't read the bible without
+Chad: Great way to tell me you don't read the bible without
 telling me you don't read the bible. Everyone knows that verse because
 it's the most popular.
 
-****John:**** Yes, but it's still a good verse!
+John: Yes, but it's still a good verse!
 
 Matt: I think the verse right after it is even better. John
-3:****17: ****For God sent not his Son into the world to condemn the
-world; but that the world through him might be saved.
+3:17: For God sent not his son into the world to condemn the
+world, but that the world through him might be saved.
 
 Everyone had a good time as they ate and talked about their favorite
 bible verses. Everyone had a good time except for Luke, who really
 didn't like the interaction he had with Chad and was standing in the
-distance eating hot dogs. He looked at Chad with jealousy because Chad
+distance, eating hot dogs. He looked at Chad with jealousy because Chad
 was the star. Everyone liked Chad more than they liked him, even Stacy.
 
 # Chapter 5: Jealousy is Gross
@@ -600,22 +582,22 @@ found what Chad was talking about.
 
 ______
 
-[]{#anchor}Matthew 25:34 "Then the King will say to those on his right,
+Matthew 25:34 "Then the King will say to those on his right,
 'Come, you who are blessed by my Father; take your inheritance, the
 kingdom prepared for you since the creation of the
-world. []{#anchor-1}35 For I was hungry and you gave me something to
+world. 35 For I was hungry and you gave me something to
 eat, I was thirsty and you gave me something to drink, I was a stranger
-and you invited me in, []{#anchor-2}36 I needed clothes and you clothed
+and you invited me in, 36 I needed clothes and you clothed
 me, I was sick and you looked after me, I was in prison and you came to
 visit me.'
 
-[]{#anchor-3}37 "Then the righteous will answer him, 'Lord, when did we
+37 "Then the righteous will answer him, 'Lord, when did we
 see you hungry and feed you, or thirsty and give you something to
-drink? []{#anchor-4}38 When did we see you a stranger and invite you in,
-or needing clothes and clothe you? []{#anchor-5}39 When did we see you
+drink? 38 When did we see you a stranger and invite you in,
+or needing clothes and clothe you? 39 When did we see you
 sick or in prison and go to visit you?'
 
-[]{#anchor-6}40 "The King will reply, 'Truly I tell you, whatever you
+40 "The King will reply, 'Truly I tell you, whatever you
 did for one of the least of these brothers and sisters of mine, you did
 for me.'
 
@@ -672,3 +654,12 @@ But how would he do it? Chad was perfect morally, physically,
 financially, and spiritually. He couldn't find a weakness here but kept
 trying to plot something. He should have been happy for Chad, but
 instead, his jealousy turned into hatred.
+
+# Chapter 6: Unwanted Fame
+
+The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed to only make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
+
+Stacy was a little bit shy around people and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
+
+Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way but watched and listened to anything happening in Chad's like that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
+
