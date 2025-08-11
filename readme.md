@@ -636,12 +636,3 @@ But how would he do it? Chad was perfect morally, physically,
 financially, and spiritually. He couldn't find a weakness here but kept
 trying to plot something. He should have been happy for Chad, but
 instead, his jealousy turned into hatred.
-
-# Chapter 6: Unwanted Fame
-
-The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed to only make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
-
-Stacy was a little bit shy around people and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
-
-Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way but watched and listened to anything happening in Chad's like that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
-
