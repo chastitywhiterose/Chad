@@ -23,40 +23,6 @@ characters. This description and conversation introduces Chad and his
 friends as well as some characters that are mentioned by name but that
 even I, as the author, do not know what will happen involving them!
 
-# Character Description
-
-Name: Chad
-
-Physical Description: Chad is 25 years old and looks like a
-stereotypical white American. He has short blond hair and blue eyes. He
-is also larger and more muscular than other men his age with very large
-and strong arms.
-
-Personality Type: Chad is quite competitive and is proud of his
-achievements both in physical sports as well as mind games of skill like
-Chess and Shogi. He is very adventurous and takes risks that are not
-safe, but he always has the strength or intelligence to get out of any
-mess he finds himself in. He has many friends that he plays sports with
-and a Golden Retriever dog which he named Gold General after a Shogi
-piece.
-
-Chad's Fear: Chad has a secret that he worries people will find out
-about. He conceals his fear through his confident facade of always being
-the winner. He can get anything he wants in life, but he fears losing
-his friends and family if they ever find out what his secret is.
-
-Chad's Love: Chad loves animals, especially his dog, Gold General. He
-is Vegan and does not hurt animals because he sees them as having
-unconditional love. He believes that a dog really is man's best friend.
-
-Chad's Dislike: Chad dislikes attending church with his parents because
-he finds it quite boring. He doesn't really want to sing in front of
-people or listen to the pastor preach about things he doesn't care
-about. Although Chad doesn't enjoy church, he goes every Sunday so that
-his parents won't think he's a lost heathen. He believes in God but
-thinks sitting around and listening or talking about things is a waste
-of time.
-
 # Chapter 1: Chad plays soccer with his friends
 
 Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
@@ -639,9 +605,46 @@ instead, his jealousy turned into hatred.
 
 # Chapter 6: Unwanted Fame
 
-The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed to only make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
+The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed only to make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
 
-Stacy was a little bit shy around people and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
+Stacy was a little bit shy around people, and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
 
-Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way but watched and listened to anything happening in Chad's like that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
+Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way, but watched and listened to anything happening in Chad's life that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
 
+"Hello Luke, is there something I can help you with?" asked Mark.
+
+"Yes, Pastor Mark, I was wondering if you had any ideas how we could get the church involved with sports activities for kids. Maybe people like me and Chad could teach children to play sports and train the next generation, both as sports players but also teach them the Bible and the Christian message," said Luke.
+
+"That's a fine idea, but why the sudden interest?" said Mark.
+
+"I was reading Chad's story in the newspaper about the animal shelter and I thought Chad's fame could help bring people to church more often, maybe even some more donations from soccer fans who want to donate to the children's ministry because this town is known for having the best soccer team in the area," said Luke.
+
+"It sounds like a perfect idea. Have you mentioned it to Chad yet?" said Mark.
+
+"Not yet, I just wanted to get your input on it so that we can use the church property to hold events," said Luke.
+
+"OK then, tell Chad and anyone you know about your idea," said Mark.
+
+A few days later, Luke went to the animal shelter to tell Chad about this idea.
+
+"Hey Chad, I just got permission from pastor Mark for an idea I had of teaching soccer to children near the church. Do you want to join?" said Luke.
+
+"Of course I am in, I love to teach almost as much as I like to play. Let's get Matt and John in the game with us!" said Chad.
+
+"Hey Stacy, are you going to join us?" said Luke.
+
+"What for? I don't play soccer," Said Stacy.
+
+"Oh, I forgot to mention, this will also be an extension to the children's ministry. You can read the Bible to them or do another activity you like with them if you're interested," said Luke.
+
+"I'll think about it," said Stacy.
+
+After Luke left, Chad asked Stacy a question.
+
+"Stacy, you seemed hesitant to join Luke's new activities with the children. Is anything wrong?" said Chad.
+
+"To be honest, I don't trust Luke very much. Since when did he care about children or the church? He is up to something. Besides that, I am under enough pressure from my family who want me to be a normal woman and get married and have children at my age. The last thing I need is more time in the spotlight. You're famous, Chad, but I prefer to keep my life private," said Stacy.
+
+"Understood, Stacy, but if you ever change your mind, let me know. You're a great person and the kids will love you," said Chad.
+
+"I do not doubt that. I just prefer not to be in crowds of people and noisy children, said Stacy.
