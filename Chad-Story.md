@@ -4,24 +4,11 @@ Chastity White Rose
 
 # Introduction
 
-The following story you are about to read started as an assignment for
-my Creative Writing course with Full Sail University. It started as a
-joke but then turned quite serious and emotional. I believe that others
-will benefit by seeing this and it is an ongoing story that has just
-begun.
+The following story you are about to read started as an assignment for my Creative Writing course with Full Sail University. It started as a joke but then turned quite serious and emotional. I believe that others will benefit by seeing this and it is an ongoing story that has just begun.
 
-Chad is your most basic Cisgender Straight White man who is actually
-quite different from me. Chad is obviously a fictional character, but he
-is based on expectations of what society expects him to be. He also
-desires the approval of his parents. He is written to be a relatable
-character, as you will see as the story continues.
+Chad is your most basic Cisgender Straight White man who is actually quite different from me. Chad is obviously a fictional character, but he is based on expectations of what society expects him to be. He also desires the approval of his parents. He is written to be a relatable character, as you will see as the story continues.
 
-Below is the original character description I wrote for my Literary
-Techniques and Story Development class. I got a bit carried away with
-the experience part and then constructed a huge conversation between 4
-characters. This description and conversation introduces Chad and his
-friends as well as some characters that are mentioned by name but that
-even I, as the author, do not know what will happen involving them!
+Below is the original character description I wrote for my Literary Techniques and Story Development class. I got a bit carried away with the experience part and then constructed a huge conversation between 4 characters. This description and conversation introduces Chad and his friends as well as some characters that are mentioned by name but that even I, as the author, do not know what will happen involving them!
 
 # Chapter 1: Chad plays soccer with his friends
 
