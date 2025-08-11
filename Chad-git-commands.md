@@ -57,19 +57,6 @@ When I created a repository with git, it defaulted to "master". If I want to use
 
 `git push --set-upstream origin master`
 
-But it is better to use the main branch because it is the name used in my remote github repository.
-
-To create a main branch in the local repository:
-
-`git branch main`
-
-Then switch to it with:
-
-`git switch main`
-
-But I can also change the upstream to main.
-
-`git push --set-upstream origin main`
 
 It requires me to log in to my github, which I did.
 
@@ -77,3 +64,8 @@ And finally, push things to the remote repository.
 
 `git push`
 
+It worked and all my files were in master. However, I wanted them in main. I could not figure out how to accomplish this. So instead I deleted master from the remote repository, uploaded the most important files to the main branch from the web browser, and then I simply deleted the folder, went back to my git folder and recloned the entire remote repository!
+
+`git clone https://github.com/chastitywhiterose/Chad.git`
+
+However, I can now add, commit, and push to update my repository without having to access the website from my web browser!
