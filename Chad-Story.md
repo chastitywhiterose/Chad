@@ -59,114 +59,67 @@ of time.
 
 # Chapter 1: Chad plays soccer with his friends
 
-Chad was a busy man. Chad was a very rich and popular man in his small
-town. He lived in a quiet, small town in Missouri where everyone went to
-church on Sunday, and even gas stations were closed on Sunday to honor
-what the Christians called the Lord\'s Sabbath. Chad had just graduated
-college, and his career was in sports. He loved Soccer the most, but he
-played a little bit of Tennis and Basketball in college and high school.
-Chad had plenty of friends, and almost all the girls had fantasies about
-him because he was also stereotypically attractive. His scholarships and
-income from always being the top sports player had left him very rich
-and so he did not need to work a regular job like most people.
+Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
 
-However, he volunteered his time at any type of charity organization or
-church event. He mowed the lawn and fixed things at the Crisis Pregnancy
-Center and also was a janitor at the animal shelter. He had plenty of
-time to do these jobs whenever he wasn\'t playing sports. He played
-sports for money but also with his friends for fun.
+However, he volunteered his time at any type of charity organization or church event. He mowed the lawn and fixed things at the Crisis Pregnancy Center, and was a janitor at the animal shelter. He had plenty of time to do these jobs whenever he wasn't playing sports. He played sports for money but also with his friends for fun.
 
-Chad played Soccer one Tuesday afternoon with three of his friends. He
-was on Matthew\'s team, and they were playing against Luke and John.
-Chad and Matthew beat the other team 15 to 5, with Chad scoring 12 of
-the goals. After the game they all ordered Pizza from Sarpino\'s and
-then talked about their lives. They all had a debate over what the
-sermon was about on the previous Sunday.
+Chad played Soccer one Tuesday afternoon with three of his friends. He was on Matthew's team, and they were playing against Luke and John. Chad and Matthew beat the other team 15 to 5, with Chad scoring 12 of the goals. After the game, they all ordered Pizza from Sarpino's and then talked about their lives. They all had a debate over what the sermon was about the previous Sunday.
 
 The conversation went like this:
 
-Matthew: Hey Chad, we sure had a good game. I know I wouldn\'t have won
-if I wasn\'t on your team.
+"Hey Chad, we sure had a good game. I know I wouldn't have won if I weren't on your team," said Matthew.
 
-Chad: Hey Matt, don\'t be so hard on yourself. If you would like, I
-could help train you to kick the ball where you\'re trying to.
+"Hey Matt, don't be so hard on yourself. If you would like, I could help train you to kick the ball where you're trying to," said Chad.
 
-Matthew: Thanks Chad! By the way, what did you think about the sermon on
-Sunday?
+"Thanks, Chad! By the way, what did you think about the sermon on Sunday?" said Matthew.
 
-Chad: Can you remind me what it was? I wasn\'t paying any attention. I
-just go so my dad doesn\'t say I am not a Christian.
+"Can you remind me what it was? I wasn't paying any attention. I just go so my dad doesn't say I am not a Christian," said Chad.
 
-Luke: I remember it. Pastor Mark was reading from Romans chapter 1.
+"I remember it. Pastor Mark was reading from Romans chapter 1," said Luke.
+"That's right, it was about idolatry. People created things that they worshipped instead of God, who created those things," said John.
 
-John: That\'s right, it was about idolatry. People created things that
-they worshipped instead of God, who created those things.
+"I don't remember that part at all. I was talking about verses 24 to 27, where it says God gave people over to their sexual desires. What do you guys think that was about?" said Matthew.
 
-Matthew: I don\'t remember that part at all. I was talking about verses
-24 to 27, where it says God gave people over to their sexual desires.
-What do you guys think that was about?
+"I guess it's about people who make their sexual desires an idol that is more important than God. It's all part of the same thing, really," said John.
 
-John: I guess it\'s about people who make their sexual desires an idol
-that is more important than God. It\'s all part of the same thing,
-really.
+"No, it's not that at all. Clearly, it was talking about homosexuals and how their desires are so sinful that even God must give up on them and leave them to live out their sins," said Luke.
 
-Luke: No, it\'s not that at all. Clearly, it was talking about
-homosexuals and how their desires are so sinful that even God has to
-give up on them and leave them to live out their sins.
+"So, does that mean that if someone's desires are sinful, God has abandoned them?" said Matthew.
 
-Matthew: So does that mean that if someone\'s desires are sinful, God
-has abandoned them?
+"Who cares? It's not like any of us has anything to worry about. We are Christians, and we are straight, exactly like God intended us to be!" said Luke
 
-Luke: Who cares? It\'s not like any of us have anything to worry about.
-We are Christians, and we are straight, exactly like God intended us to
-be!
+"Especially you, Luke. I know you were looking at Stacy the whole time. Maybe she's your idol," said John.
 
-John: Especially you, Luke. I know you were looking at Stacy the whole
-time. Maybe she\'s your idol.
+"Hey, I'm just appreciating God's divine art!" said Luke.
 
-Luke: Hey I\'m just appreciating God\'s divine art!
+"Watch out, Luke! Stacy is the pastor's daughter! Get too close, and you will still face the wrath of God!" said Chad.
 
-Chad: Watch out, Luke! Stacy is the pastor\'s daughter! Get too close,
-and you\'ll still face the wrath of God!
+"Better worry about your sins, Chad! You have the sin of greed because you take all the girls," said Luke.
 
-Luke: Better worry about your sins, Chad! You have the sin of greed
-because you take all the girls.
+"I can't help it. The girls all come to me. Maybe I can send some of the girls your way, and you can leave Stacy alone," said Chad.
 
-Chad: I can\'t help it. They all come to me. Maybe I can send some your
-way, and you can leave Stacy alone.
+"I see how it is! The real reason you come to church is also to have a chance with Stacy," said Luke.
 
-Luke: I see how it is! The real reason you come to church is also to
-have a chance with Stacy.
+"Yeah, you caught me! You'll have to beat me in sports first before you fight over girls with me," said Chad.
 
-Chad: Yeah, you caught me! You\'ll have to beat me in sports first
-before you fight over girls with me.
+"Fair enough, Chad!" said Luke.
 
-Luke: Fair enough, Chad!
-
-The four friends continued to talk about many different things as they
-ate pizza and laughed. Chad felt a little bit sick inside that he lied
-to his friend Luke. The truth is that he pretended to be interested in
-dating Stacy because he didn\'t like the way Luke was talking about
-Stacy. She was just an idol to Luke, and Chad agreed with John. He also
-noticed that Matthew had gone silent as the other three talked for the
-rest of the night. Chad decided to talk to Matthew about it more when
-the two of them were alone. Something was not right, but he didn\'t know
-why.
+The four friends continued to talk about many different things as they ate pizza and laughed. Chad felt a little bit uncomfortable because he lied to his friend Luke. The truth is that he pretended to be interested in dating Stacy because he didn't like the way Luke was talking about Stacy. She was just an idol to Luke, and Chad agreed with John. He also noticed that Matthew had gone silent as the other three talked for the rest of the night. Chad decided to talk to Matthew about it more when the two of them were alone. Something was bothering Matthew, but Chad did not know why. Since when did Matthew listen to the sermons or read the Bible? Chad and his friends had certainly grown up around Christian influence, but they never had conversations like this before.
 
 # Chapter 2: Chad meets another Vegan
 
 Chad was a Vegan and did not eat or wear animal products. Whenever his
-friends questioned him about why he didn\'t eat the same foods as them
-at social events, he said he ate only plants because it was healthier,
+friends questioned him about why he didn't eat the same foods as they
+did at social events, he said he ate only plants because it was healthier,
 and he was a sportsman who needed to be in top physical condition. All
-of this was true, but it wasn\'t the most important reason. The truth
+of this was true, but it wasn't the most important reason. The truth
 was that he did not want to eat animals because he believed killing them
 was wrong. He knew this idea would be mocked in his conservative
 religious town. Even his own family ate mostly meat and cheese, but they
-never questioned his diet; after all, they knew he was health conscious.
+never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation of being an animal lover, but in the town of
-Podunk, everyone called themselves an animal lover, but they were not
+Chad did have a reputation for being an animal lover, but in the town of
+Podunk, everyone called themselves animal lovers, but they were not
 vegan. Their love for animals extended only to dogs and cats. Chad
 Volunteered at the animal shelter and cleaned up after the animals. He
 really wanted to be around all kinds of animals, but this was the best
@@ -175,19 +128,18 @@ than humans.
 
 Most of all, Chad loved dogs, though. He had a Golden Retriever that he
 played sports with. The reason that Chad loved the game of Soccer more
-than other sports was because it was the easiest sport for his dog to
+than other sports was that it was the easiest sport for his dog to
 play with him. Chad loved playing with his dog more than other humans
 because his dog would not judge him when he missed the goal or for
 anything else about him. He always said a dog was man\'s best friend.
 
-As Chad cleaned the cages, Stacy, who also worked there feeding all the
+As Chad cleaned the cages, Stacy, who also worked there, feeding all the
 animals, noticed how the dogs seemed to love him. She decided to start a
 conversation.
 
 Stacy: The dogs seem to really like you!
 
-Chad: I think it\'s because I understand dogs because of my dog. They
-like to play just as much as I do.
+Chad: I think it's because I understand dogs because of my dog. Dogs like to play just as much as humans do.
 
 Stacy: What\'s your dog\'s name?
 
@@ -195,14 +147,12 @@ Chad: Gold General.
 
 Stacy: Why that name?
 
-Chad: The Gold General is a piece in the Japanese game of Shogi. Also,
-my dog is a Golden Retriever, so it was the first thing that popped into
-my head when I got him.
+Chad: The Gold General is a piece in the Japanese game of Shogi. Also, my dog is a Golden Retriever, so it was the first thing that popped into my head when I got him.
 
 Stacy: That makes perfect sense. Do you play Shogi? What is it like?
 
-Chad: It\'s actually a lot like chess, except it has a few pieces that
-standard chess doesn\'t have. Do you play chess?
+Chad: It's actually a lot like chess, except it has a few pieces that
+standard chess doesn't have. Do you play chess?
 
 Stacy: A little bit, but I have no one to play with, so I am not very
 good. I learned from my dad years ago.
@@ -210,15 +160,11 @@ good. I learned from my dad years ago.
 Chad: I will tell you what, how about I coach you in chess and also
 teach you Shogi? I have a collection of board games at home.
 
-Stacy: Sounds fun, but when are you going to have time for that? Aren\'t
-you the number one sports star in the town?
+Stacy: Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?
 
-Chad: Yeah, but the big games are only once a month. I practice every
-day with my dog, and once a week, I get together with my friends and
-play Soccer and sometimes basketball. I have time to do things like
-volunteer here and help my parents with chores sometimes.
+Chad: Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes.
 
-Stacy: You\'re not like the other guys in this town, Chad.
+Stacy: You're not like the other guys in this town, Chad.
 
 Chad: How so? Is that good or bad?
 
@@ -228,43 +174,42 @@ of all this, you are cleaning up dog poop at an animal shelter! Most
 people in this town think that jobs like this are beneath their dignity
 and that animals are not as important as humans.
 
-Chad: Sometimes I like animals more than humans. I don\'t even eat them
+Chad: Sometimes I like animals more than humans. I don't even eat them
 because animals are friends, not food!
 
 Stacy: You\'re a Vegan?
 
 *\"What do I say? I have never told anyone this because I will be the
-laughingstock of the town if they find out the true reason I don\'t eat
+laughingstock of the town if they find out the true reason I don't eat
 like them.\"* Chad thought to himself. Even so, Stacy seemed like
-someone he could trust this information to. If there is anyone who might
+someone he could trust with this information, too. If there is anyone who might
 understand, it is her.
 
 Chad: Yes, I stopped eating animals when I was 16. I was always on the
 go, so I ate mostly fruit for energy. After a while, I noticed that my
-performance in sports was better when I didn\'t eat meat, dairy, eggs,
+performance in sports was better when I didn't eat meat, dairy, eggs,
 or honey. I always felt sick afterward when I ate them with my family.
 
-Stacy: But it\'s also because you don\'t want to hurt the animals,
-isn\'t it?
+Stacy: But it\'s also because you don't want to hurt the animals,
+Isn't it?
 
 Chad: Yes, but you can\'t tell anyone this.
 
 Stacy: That\'s silly, why not?
 
-Chad: It isn\'t good for my reputation in the sports world and this town
+Chad: It isn't good for my reputation in the sports world and this town
 to be seen as sensitive and caring towards animals. At best, I will get
-questions I don\'t want to answer, and at worst, I will get called a
+questions I don't want to answer, and at worst, I will get called a
 bleeding heart liberal like the people my dad makes fun of.
 
-Stacy: You really care what others think of you, don\'t you?
+Stacy: You really care what others think of you, don't you?
 
 Chad: I kind of have to. If word gets out that I have views that are
 seen as political or related to social issues, it could really mess with
 my sports career. One wrong move, and it\'s game over, just like chess.
 
 Stacy: What about what the animals think of you? If you were in their
-place, would you want those with influence to speak for your rights, or
-would you accept that their reputation is more important than your own
+place, would you want those with influence to speak for your rights, or would you accept that their reputation is more important than your own
 life?
 
 This statement by Stacy cut Chad to his core. He never thought about
@@ -277,11 +222,11 @@ would expect them to be better than I am. I am sorry.
 Stacy: Who are you apologizing to?
 
 Chad: The animals that were killed and tortured because I was silent and
-cared more about myself than I did their lives. I didn\'t even think
+cared more about myself than I did their lives. I didn't even think
 about that.
 
 Stacy: Chad, you\'re really not like the other people in this town. You
-really do have the love of Christ in you. Don\'t worry, I will keep your
+really do have the love of Christ in you. Don't worry, I will keep your
 secret, and only you can decide what to do with your life; I was just
 thinking out loud. I am sorry if I came across as harsh.
 
@@ -289,25 +234,24 @@ Chad: No, Stacy, that\'s the most honest thing I have ever heard anyone
 in this small town say to me in my life. I do want to be a better voice
 for the animals, but I am still afraid.
 
-Stacy: I am afraid too sometimes. My family doesn\'t approve of me being
+Stacy: I am afraid too sometimes. My family doesn't approve of me being
 vegan, and they say God intended humans to eat animals. My father quotes
-bible verses from Genesis and Leviticus at me sometimes when I don\'t
-eat with the family because I can\'t bear to witness them eating my
+bible verses from Genesis and Leviticus at me sometimes when I don't
+eat with the family because I can't bear to witness them eating my
 friends.
 
-Chad: That sounds really tough. I wouldn\'t know how to deal with that.
+Chad: That sounds really tough. I wouldn't know how to deal with that.
 I have never really dealt with conflict or controversy because I just
 say what I think will make others happy. Anyhow, thanks for talking to
 me, Stacy.
 
 Stacy: Anytime, Chad! It was a pleasure.
 
-Chad had met a new friend that he could trust. He never really talked to
+Chad had met a new friend whom he could trust. He never really talked to
 Stacy before because she seemed like such a shy girl at church. But now
 he saw the strength in her voice and the fire in her eyes as she spoke
 about the animals. Chad and Stacy talked about many things on the days
-they both worked at the animal shelter. They became the best of friends
-but it was their secret that no one else knew.
+they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
 
 # Chapter 3: The Secrets of Chad and Matt
 
