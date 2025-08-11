@@ -70,3 +70,18 @@ It worked and all my files were in master. However, I wanted them in main. I cou
 
 However, I can now add, commit, and push to update my repository without having to access the website from my web browser! Although I am still new to using git, it seems convenient once I know the commands I must learn to use.
 
+## The Github login process.
+
+On Windows, I was able to log into github from my web browser to validate my first push. However, when I was on Linux, I ran into an error about "Password authentication is not supported for Git operations."
+
+<https://www.geeksforgeeks.org/git/how-to-fix-support-for-password-authentication-was-removed/>
+
+<https://www.youtube.com/watch?v=ePCBuIQJAUc>
+
+Using the information combined from these two sources, I was able to get it working!
+
+The command:
+
+`git config --global credential.helper store`
+
+Saves the access token so that I don't have to enter it every time I "git push".
