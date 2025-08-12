@@ -4,15 +4,15 @@ Chastity White Rose
 
 # Introduction
 
-The following story you are about to read started as an assignment for my Creative Writing course with Full Sail University. It started as a joke but then turned quite serious and emotional. I believe that others will benefit by seeing this and it is an ongoing story that has just begun.
+The following story you are about to read started as an assignment for my Creative Writing course with Full Sail University. It started as a joke, but then it turned quite serious and emotional.
 
 Chad is your most basic Cisgender Straight White man who is actually quite different from me. Chad is obviously a fictional character, but he is based on expectations of what society expects him to be. He also desires the approval of his parents. He is written to be a relatable character, as you will see as the story continues.
 
-Below is the original character description I wrote for my Literary Techniques and Story Development class. I got a bit carried away with the experience part and then constructed a huge conversation between 4 characters. This description and conversation introduces Chad and his friends as well as some characters that are mentioned by name but that even I, as the author, do not know what will happen involving them!
+I developed more elements of the characters for assignments in other classes. After I graduated in July 2025, I began work on turning this into a complete story. I hope you enjoy this story.
 
 # Chapter 1: Chad plays soccer with his friends
 
-Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
+Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri named Podunk, where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
 
 However, he volunteered his time at any type of charity organization or church event. He mowed the lawn and fixed things at the Crisis Pregnancy Center, and was a janitor at the animal shelter. He had plenty of time to do these jobs whenever he wasn't playing sports. He played sports for money but also with his friends for fun.
 
@@ -559,9 +559,9 @@ After Luke left, Chad asked Stacy a question.
 
 "I do not doubt that. I just prefer not to be in crowds of people and noisy children," said Stacy.
 
-Chapter 7: Questionable Intentions
+# Chapter 7: Questionable Intentions
 
-The next Sunday, Pastor Mark announced that Chad and Luke were volunteering to teach soccer to children for an hour after church each Sunday morning. He asked people to bring their children who were interested for soccer, food, fun, and Bible stories. He asked for more volunteers, including his daughter Stacy who was not fully on board with it all.
+The next Sunday, Pastor Mark announced that Chad and Luke were volunteering to teach soccer to children for an hour after church each Sunday morning. He asked people to bring their children who were interested in soccer, food, fun, and Bible stories. He asked for more volunteers, including his daughter Stacy, who was not fully on board with it all.
 
 "Stacy, are you going to join the activities with Chad and Luke on Sunday afternoons with the children?" said Mark.
 
@@ -569,4 +569,18 @@ The next Sunday, Pastor Mark announced that Chad and Luke were volunteering to t
 
 "But the girls could probably look up to a female role model if you were present. It wouldn't be right to only have Chad, Matthew, Luke, and John be the only adults present," said Mark.
 
-"Are you saying I am only of use for being an adult female so that the girls don't feel left out?"
+"Are you saying I am only of use for being an adult female so that the girls don't feel left out?" said Stacy.
+
+"No, I also think you need to do something other than waste your time volunteering at the animal shelter," said Mark.
+
+"It's not a waste of time! Even Chad sees it as an integral part of his Christianity to serve others and do for them what he would do for Jesus!" said Stacy. He explained that to Gabby when she interviewed him for the paper," said Stacy.
+
+"I am sorry, I didn't mean a waste of time, but you are 25 years old and you need to get a job that pays, or at least find a rich husband. What about that Chad fellow? He is rich and a Christian. Since you like him so much, you really should help him with the children," said Mark.
+
+"I see, this is part of your scheme to get me out of the house and married off to a rich dude. Fine, I will join Chad and the others with all activities I can, but I am doing it for Jesus, not for you!" said Stacy.
+
+Pastor Mark didn't say anything after that; he knew he was in the wrong, but he cared more about the reputation of the church and his reputation. He couldn't very well have his daughter not participate in church activities because it made him look like a failure if they were not meeting religious or social expectations.
+
+Stacy didn't trust the intentions of Luke for starting this sports ministry, nor her father, who was clearly set on getting her to marry a rich man so he wouldn't be financially responsible for her anymore.
+
+Stacy called Chad and told him she wanted to be involved. They discussed strategies for things she could do for kids when they were tired from playing sports. What she didn't tell him was about her father's plan to set them up romantically. Chad was a friend, and she didn't want to make it weird. Even though she liked him as a person, she wasn't interested in any man, especially a rich sports star, because that is what her father wanted for her.

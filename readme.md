@@ -4,28 +4,15 @@ Chastity White Rose
 
 # Introduction
 
-The following story you are about to read started as an assignment for
-my Creative Writing course with Full Sail University. It started as a
-joke but then turned quite serious and emotional. I believe that others
-will benefit by seeing this and it is an ongoing story that has just
-begun.
+The following story you are about to read started as an assignment for my Creative Writing course with Full Sail University. It started as a joke, but then it turned quite serious and emotional.
 
-Chad is your most basic Cisgender Straight White man who is actually
-quite different from me. Chad is obviously a fictional character, but he
-is based on expectations of what society expects him to be. He also
-desires the approval of his parents. He is written to be a relatable
-character, as you will see as the story continues.
+Chad is your most basic Cisgender Straight White man who is actually quite different from me. Chad is obviously a fictional character, but he is based on expectations of what society expects him to be. He also desires the approval of his parents. He is written to be a relatable character, as you will see as the story continues.
 
-Below is the original character description I wrote for my Literary
-Techniques and Story Development class. I got a bit carried away with
-the experience part and then constructed a huge conversation between 4
-characters. This description and conversation introduces Chad and his
-friends as well as some characters that are mentioned by name but that
-even I, as the author, do not know what will happen involving them!
+I developed more elements of the characters for assignments in other classes. After I graduated in July 2025, I began work on turning this into a complete story. I hope you enjoy this story.
 
 # Chapter 1: Chad plays soccer with his friends
 
-Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
+Chad was a busy man. Chad was a rich and popular man in his small town. He lived in a quiet, small town in Missouri named Podunk, where everyone went to church on Sunday, and even gas stations were closed on Sunday to honor what the Christians called the Lord's Sabbath. Chad had just graduated from college, and his career was in sports. He loved Soccer the most, but he played a little bit of Tennis and Basketball in college and high school. Chad had plenty of friends, and most of the girls had fantasies about him because he was also stereotypically attractive. His scholarships and income from always being the top sports player had left him very rich, and so he did not need to work a regular job like most people.
 
 However, he volunteered his time at any type of charity organization or church event. He mowed the lawn and fixed things at the Crisis Pregnancy Center, and was a janitor at the animal shelter. He had plenty of time to do these jobs whenever he wasn't playing sports. He played sports for money but also with his friends for fun.
 
@@ -74,153 +61,89 @@ The four friends continued to talk about many different things as they ate pizza
 
 # Chapter 2: Chad meets another Vegan
 
-Chad was a Vegan and did not eat or wear animal products. Whenever his
-friends questioned him about why he didn't eat the same foods as they
-did at social events, he said he ate only plants because it was healthier,
-and he was a sportsman who needed to be in top physical condition. All
-of this was true, but it wasn't the most important reason. The truth
-was that he did not want to eat animals because he believed killing them
-was wrong. He knew this idea would be mocked in his conservative
-religious town. Even his own family ate mostly meat and cheese, but they
-never questioned his diet; after all, they knew he was health-conscious.
+Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth
+was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation for being an animal lover, but in the town of
-Podunk, everyone called themselves animal lovers, but they were not
-vegan. Their love for animals extended only to dogs and cats. Chad
-Volunteered at the animal shelter and cleaned up after the animals. He
-really wanted to be around all kinds of animals, but this was the best
-his town had to offer if someone wanted to be around a species other
-than humans.
+Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
-Most of all, Chad loved dogs, though. He had a Golden Retriever that he
-played sports with. The reason that Chad loved the game of Soccer more
-than other sports was that it was the easiest sport for his dog to
-play with him. Chad loved playing with his dog more than other humans
-because his dog would not judge him when he missed the goal or for
+Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for
 anything else about him. He always said a dog was man's best friend.
 
-As Chad cleaned the cages, Stacy, who also worked there, feeding all the
-animals, noticed how the dogs seemed to love him. She decided to start a
-conversation.
+As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals, noticed how the dogs seemed to love him. She decided to start a conversation.
 
-Stacy: The dogs seem to really like you!
+"The dogs seem to really like you!" said Stacy.
 
-Chad: I think it's because I understand dogs because of my dog. Dogs like to play just as much as humans do.
+"I think it's because I understand dogs because of my dog. Dogs like to play just as much as humans do," said Chad.
 
-Stacy: What's your dog's name?
+"What's your dog's name?" said Stacy.
 
-Chad: Gold General.
+"Gold General," said Chad.
 
-Stacy: Why that name?
+"Why that name?" said Stacy.
 
-Chad: The Gold General is a piece in the Japanese game of Shogi. Also, my dog is a Golden Retriever, so it was the first thing that popped into my head when I got him.
+"The Gold General is a piece in the Japanese game of Shogi. Also, my dog is a Golden Retriever, so it was the first thing that popped into my head when I got him," said Chad.
 
-Stacy: That makes perfect sense. Do you play Shogi? What is it like?
+"That makes perfect sense. Do you play Shogi? What is it like?" said Stacy.
 
-Chad: It's actually a lot like chess, except it has a few pieces that
-standard chess doesn't have. Do you play chess?
+"It's actually a lot like chess, except it has a few pieces that standard chess doesn't have. Do you play chess?" said Chad.
 
-Stacy: A little bit, but I have no one to play with, so I am not very
-good. I learned from my dad years ago.
+"A little bit, but I have no one to play with, so I am not very good. I learned from my dad years ago," said Stacy.
 
-Chad: I will tell you what, how about I coach you in chess and also
-teach you Shogi? I have a collection of board games at home.
+"I will tell you what, how about I coach you in chess and also teach you Shogi? I have a collection of board games at home," said Chad.
 
-Stacy: Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?
+"Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?" said Stacy.
 
-Chad: Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes.
+"Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes," said Chad.
 
-Stacy: You're not like the other guys in this town, Chad.
+"You're not like the other guys in this town, Chad," said Stacy.
 
-Chad: How so? Is that good or bad?
+"How so? Is that good or bad?" said Chad.
 
-Stacy: It's good. What I mean is that you have everything someone could
-want. You have money, fame, looks, and the nicest car in town. In spite
-of all this, you are cleaning up dog poop at an animal shelter! Most
-people in this town think that jobs like this are beneath their dignity
-and that animals are not as important as humans.
+"It's good. What I mean is that you have everything someone could want. You have money, fame, looks, and the nicest car in town. In spite of all this, you are cleaning up dog poop at an animal shelter! Most people in this town think that jobs like this are beneath their dignity and that animals are not as important as humans," said Stacy:
 
-Chad: Sometimes I like animals more than humans. I don't even eat them
-because animals are friends, not food!
+"Sometimes I like animals more than humans. I don't even eat them because animals are friends, not food!" said Chad.
 
-Stacy: You're a Vegan?
+"You're a Vegan?" said Stacy.
 
-*"What do I say? I have never told anyone this because I will be the
-laughingstock of the town if they find out the true reason I don't eat
-like them."* Chad thought to himself. Even so, Stacy seemed like
-someone he could trust with this information, too. If there is anyone who might
-understand, it is her.
+*"What do I say? I have never told anyone this because I will be the laughingstock of the town if they find out the true reason I don't eat like them."* Chad thought to himself. Even so, Stacy seemed like someone he could trust with this information, too. If there is anyone who might understand, it is her.
 
-Chad: Yes, I stopped eating animals when I was 16. I was always on the
-go, so I ate mostly fruit for energy. After a while, I noticed that my
-performance in sports was better when I didn't eat meat, dairy, eggs,
-or honey. I always felt sick afterward when I ate them with my family.
+"Yes, I stopped eating animals when I was 16. I was always on the go, so I ate mostly fruit for energy. After a while, I noticed that my performance in sports was better when I didn't eat meat, dairy, eggs, or honey. I always felt sick afterward when I ate them with my family," said Chad.
 
-Stacy: But it's also because you don't want to hurt the animals,
-Isn't it?
+"But it's also because you don't want to hurt the animals, isn't it?" said Stacy.
 
-Chad: Yes, but you can't tell anyone this.
+"Yes, but you can't tell anyone this," said Chad.
 
-Stacy: That's silly, why not?
+"That's silly, why not?" said Stacy.
 
-Chad: It isn't good for my reputation in the sports world and this town
-to be seen as sensitive and caring towards animals. At best, I will get
-questions I don't want to answer, and at worst, I will get called a
-bleeding heart liberal like the people my dad makes fun of.
+"It isn't good for my reputation in the sports world and this town to be seen as sensitive and caring towards animals. At best, I will get questions I don't want to answer, and at worst, I will get called a bleeding heart liberal like the people my dad makes fun of," said Chad.
 
-Stacy: You really care what others think of you, don't you?
+"You really care what others think of you, don't you?" said Stacy.
 
-Chad: I kind of have to. If word gets out that I have views that are
-seen as political or related to social issues, it could really mess with
-my sports career. One wrong move, and it's game over, just like chess.
+"I kind of have to. If word gets out that I have views that are seen as political or related to social issues, it could really mess with my sports career. One wrong move, and it's game over, just like chess," said Chad.
 
-Stacy: What about what the animals think of you? If you were in their
-place, would you want those with influence to speak for your rights, or would you accept that their reputation is more important than your own
-life?
+"What about what the animals think of you? If you were in their place, would you want those with influence to speak for your rights, or would you accept that their reputation is more important than your own life?" said Stacy.
 
-This statement by Stacy cut Chad to his core. He never thought about
-such a thing before. What kind of coward was he that he cared so much
-about what others would think if they knew he was a Vegan?
+This statement by Stacy cut Chad to his core. He never thought about such a thing before. What kind of coward was he that he cared so much about what others would think if they knew he was a Vegan?
 
-Chad: You know what, Stacy, you're right. If I were in their place, I
-would expect them to be better than I am. I am sorry.
+"You know what, Stacy, you're right. If I were in their place, I would expect myself to be better than I currently am. I am sorry," said Chad.
 
-Stacy: Who are you apologizing to?
+"Who are you apologizing to?" said Stacy.
 
-Chad: The animals that were killed and tortured because I was silent and
-cared more about myself than I did their lives. I didn't even think
-about that.
+"The animals that were killed and tortured because I was silent and cared more about myself than I did their lives. I didn't even think about that," said Chad.
 
-Stacy: Chad, you're really not like the other people in this town. You
-really do have the love of Christ in you. Don't worry, I will keep your
-secret, and only you can decide what to do with your life; I was just
-thinking out loud. I am sorry if I came across as harsh.
+"Chad, you're really not like the other people in this town. You really do have the love of Christ in you. Don't worry, I will keep your secret, and only you can decide what to do with your life; I was just thinking out loud. I am sorry if I came across as harsh," said Stacy.
 
-Chad: No, Stacy, that's the most honest thing I have ever heard anyone
-in this small town say to me in my life. I do want to be a better voice
-for the animals, but I am still afraid.
+"No, Stacy, that's the most honest thing I have ever heard anyone in this small town say to me in my life. I do want to be a better voice for the animals, but I am still afraid," said Chad.
 
-Stacy: I am afraid too sometimes. My family doesn't approve of me being
-vegan, and they say God intended humans to eat animals. My father quotes
-bible verses from Genesis and Leviticus at me sometimes when I don't
-eat with the family because I can't bear to witness them eating my
-friends.
+"I am afraid too sometimes. My family doesn't approve of me being vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
 
-Chad: That sounds really tough. I wouldn't know how to deal with that.
-I have never really dealt with conflict or controversy because I just
-say what I think will make others happy. Anyhow, thanks for talking to
-me, Stacy.
+"That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy," said Chad.
 
-Stacy: Anytime, Chad! It was a pleasure.
+"Anytime, Chad! It was a pleasure," said Stacy.
 
-Chad had met a new friend whom he could trust. He never really talked to
-Stacy before because she seemed like such a shy girl at church. But now
-he saw the strength in her voice and the fire in her eyes as she spoke
-about the animals. Chad and Stacy talked about many things on the days
-they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
+Chad had met a new friend whom he could trust. He never really talked to Stacy before because she seemed like such a shy girl at church. But now he saw the strength in her voice and the fire in her eyes as she spoke about the animals. Chad and Stacy talked about many things on the days they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
 
 # Chapter 3: The Secrets of Chad and Matt
-
 
 Chad had made a promise to help train his friend Matt in soccer. Matt
 did not play professionally, but he was a friend that Chad had played
@@ -319,47 +242,41 @@ to Chad about anything.
 
 # Chapter 4: The Town Soccer Game
 
-Chad was scheduled to participate in the annual Soccer game between the
-Podunk Stallions against the Applewood Dragons. He decided to let his
-friends know because they always came to his games to cheer him on.
+Chad was scheduled to participate in the annual Soccer game between the Podunk Stallions against the Applewood Dragons. He decided to let his friends know because they always came to his games to cheer him on.
 
 He called Matt, Luke, and John. Of course, they spread the word to
 everyone else in the small town that on August 2nd, Chad would be
 playing as the team captain as usual. Luke's father, Levi, was the
 coach for the town's team and the biggest sports fan there was, so people quickly found out about the event.
 
-In the meantime, Matt greatly improved his soccer game skills thanks to his practice with Chad. 
+In the meantime, Matt greatly improved his soccer game skills thanks to his practice with Chad.
 
-Chad: I see you have really improved with your kicking aim. Are you ready for a challenge?
+"I see you have really improved with your kicking aim. Are you ready for a challenge?" said Chad.
 
-Matt: What kind of challenge did you have in mind?
+"What kind of challenge did you have in mind?" said Matt.
 
-Chad: I want you to play against my dog, Gold General.
+"I want you to play against my dog, Gold General," said Chad.
 
-Matt: I didn't know your dog played soccer!
+"I didn't know your dog played soccer!" said Matt.
 
-Chad: He does! I mean, he can't kick the ball with a human
-foot, but he makes a great goalie. He can bounce back any ball, even if
-it's flying through the air. Come here, boy! Stand at the goal and try
-to block Matt's kicks!
+"He does! I mean, he can't kick the ball with a human foot, but he makes a great goalie. He can bounce back any ball, even if it's flying through the air. Come here, boy! Stand at the goal and try to block Matt's kicks!" said Chad.
 
 Much to Matt's surprise, Gold General stood in front of the goal.
 Clearly, he had done this before. Matt kicked the ball towards the goal
 several times. The dog blocked 7 of 10 shots, but Matt kicked the ball
 so fast that it flew even before the dog could see and react to it.
 
-Chad: 3 out of 10 isn't bad. Good job, Matt.
+"3 out of 10 isn't bad. Good job, Matt," said Chad.
 
-Matt: It doesn't sound good.
+"It doesn't sound very good," said Matt.
 
-Chad: Are you kidding me? This dog has reflexes better than Luke or John can. He can block things more efficiently because he hears the sound of the ball and knows what direction it is going in. More importantly, if Gold General had not been there, you would have made all ten. You were in the window of the goal because your aim has improved. You don't miss the goal entirely anymore.
+"Are you kidding me? This dog can dodge better than Luke or John can. He can block things more efficiently because he hears the sound of the ball and knows what direction it is going in. More importantly, if Gold General had not been there, you would have made all ten. You were in the window of the goal because your aim has improved. You don't miss the goal entirely anymore," said Chad.
 
-Matt: Thanks, Chad! I owe it all to your help. By the way, I am totally
-coming to your game against the Dragons next week!
+"Thanks, Chad! I owe it all to your help. By the way, I am totally coming to your game against the Dragons next week!" said Matt.
 
-Chad: You better! I don't want to drag you there myself!
+"You better! I don't want to drag you there myself!" said Chad.
 
-Matt: Count on it, Chad!
+"Count on it, Chad!" said Matt.
 
 The day came for the big soccer game. It was not a big event by any
 means nationally, and you would not have heard about it in the news, but
@@ -382,65 +299,58 @@ friends sat around him as he ate. It was always a spectacle to see Chad
 devour a watermelon because nobody ate like him. This time, Stacy also
 sat down with them, and they all had a conversation.
 
-John: How do you keep up your strength, Chad? I would expect you to eat 8 hot dogs after a game like that.
+"How do you keep up your strength, Chad? I would expect you to eat 8 hot dogs after a game like that," said John.
 
-Chad: John, have you ever tried eating a whole watermelon? It is
-full of water, which is what I need after playing in this heat.
+"John, have you ever tried eating a whole watermelon? It is
+full of water, which is what I need after playing in this heat," said Chad.
 
-John: Fair enough, Chad. I guess I should try it sometime!
+"Fair enough, Chad. I guess I should try it sometime!" said John.
 
-Luke: Come to think of it, I have never even seen you eat meat. How do you get your protein?
+"Come to think of it, I have never even seen you eat meat. How do you get your protein?" said Luke.
 
-Chad: Have you ever tried Tofu sandwiches, Luke?
+"Have you ever tried Tofu sandwiches, Luke?" said Chad.
 
-Luke: What kind of sissy do you think I am? Real men eat meat. I bet I
-could beat you in a one-on-one match.
+"What kind of sissy do you think I am? Real men eat meat. I bet I
+could beat you in a one-on-one match," said Luke.
 
-Stacy: What's wrong with being a sissy, Luke? Don't you have a sister?
-That's what a sissy literally means.
+"What's wrong with being a sissy, Luke? Don't you have a sister?
+That's what a sissy literally means," said Stacy.
 
-Luke: Yeah, that's fine for women, but men need calories because we do the most physical tasks and need more food.
+"Yeah, that's fine for women, but men need calories because we do the most physical tasks and need more food," said Luke.
 
-Chad: And you think women don't do hard work? They do housework and give birth to babies. I think they should be given a watermelon and a tofu sandwich after that.
+"And you think women don't do hard work? They do housework and give birth to babies. I think they should be given a watermelon and a tofu sandwich after that," said Chad.
 
-Luke: Chad, since when did you become a feminist?
+"Chad, since when did you become a feminist?" said Luke,
 
-Chad: What's that? Anyhow, if you will kindly leave me to my watermelon, the sissy princess needs her food after dominating the soccer game. But I will take you up on the soccer challenge.
+"What's a feminist? Anyhow, if you will kindly leave me to my watermelon, the sissy princess needs her food after dominating the soccer game. But I will take you up on the soccer challenge," said Chad.
 
-Stacy: Nice response, Chad. Most guys would have gotten angry at being
-insulted like Luke was doing to you.
+"Alright, Chad, I am going to go eat some real food. Catch you later!" said Luke."
 
-Chad: Don't worry about Luke. He's just mad because I get all the
+Luke left to get some hot dogs and chips. The others continued speaking.
+
+"Nice response, Chad. Most guys would have gotten angry at being
+insulted like Luke was doing to you," said Stacy.
+
+"Don't worry about Luke. He's just mad because I get all the
 attention for sports. In fact, he deserves credit for part of the
 victory. He is a great guy as long as he plays sports and keeps his
-mouth shut.
+mouth shut," said Chad.
 
-Stacy: That's what I am worried about. From the abundance of the heart, the mouth speaks.
+"That's what I am worried about. From the abundance of the heart, the mouth speaks," said Stacy.
 
-John: Luke would do well to read the book he was named after.
+"Luke would do well to read the book he was named after," said John.
 
-Chad: So would you, John!
+"So would you, John!" said Chad.
 
-John: You're not wrong, Chad! My favorite verse is actually
-John 3:16: "For God so loved the world, that he gave his only begotten
-Son, that whosoever believeth in him should not perish, but have
-everlasting life.
+"You're not wrong, Chad! My favorite verse is actually John 3:16: "For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life," said John.
 
-Chad: Great way to tell me you don't read the bible without
-telling me you don't read the bible. Everyone knows that verse because
-it's the most popular.
+"Great way to tell me you don't read the bible without telling me you don't read the bible. Everyone knows that verse because it's the most popular," said Chad.
 
-John: Yes, but it's still a good verse!
+"Yes, but it's still a good verse!" said John
 
-Matt: I think the verse right after it is even better. John
-3:17: For God sent not his son into the world to condemn the
-world, but that the world through him might be saved.
+"I think the verse right after it is even better. John 3:17: For God sent not his son into the world to condemn the world, but that the world through him might be saved," said Matt.
 
-Everyone had a good time as they ate and talked about their favorite
-bible verses. Everyone had a good time except for Luke, who really
-didn't like the interaction he had with Chad and was standing in the
-distance, eating hot dogs. He looked at Chad with jealousy because Chad
-was the star. Everyone liked Chad more than they liked him, even Stacy.
+Everyone had a good time as they ate and talked about their favorite bible verses. Everyone had a good time except for Luke, who really didn't like the interaction he had with Chad and was standing in the distance, eating hot dogs. He looked at Chad with jealousy because Chad was the star. Everyone liked Chad more than they liked him, even Stacy.
 
 # Chapter 5: Jealousy is Gross
 
@@ -647,4 +557,30 @@ After Luke left, Chad asked Stacy a question.
 
 "Understood, Stacy, but if you ever change your mind, let me know. You're a great person and the kids will love you," said Chad.
 
-"I do not doubt that. I just prefer not to be in crowds of people and noisy children, said Stacy.
+"I do not doubt that. I just prefer not to be in crowds of people and noisy children," said Stacy.
+
+# Chapter 7: Questionable Intentions
+
+The next Sunday, Pastor Mark announced that Chad and Luke were volunteering to teach soccer to children for an hour after church each Sunday morning. He asked people to bring their children who were interested in soccer, food, fun, and Bible stories. He asked for more volunteers, including his daughter Stacy, who was not fully on board with it all.
+
+"Stacy, are you going to join the activities with Chad and Luke on Sunday afternoons with the children?" said Mark.
+
+"No, I think I will stay out of it. I don't have anything to contribute, and I would rather stay out of the summer heat," said Stacy.
+
+"But the girls could probably look up to a female role model if you were present. It wouldn't be right to only have Chad, Matthew, Luke, and John be the only adults present," said Mark.
+
+"Are you saying I am only of use for being an adult female so that the girls don't feel left out?" said Stacy.
+
+"No, I also think you need to do something other than waste your time volunteering at the animal shelter," said Mark.
+
+"It's not a waste of time! Even Chad sees it as an integral part of his Christianity to serve others and do for them what he would do for Jesus!" said Stacy. He explained that to Gabby when she interviewed him for the paper," said Stacy.
+
+"I am sorry, I didn't mean a waste of time, but you are 25 years old and you need to get a job that pays, or at least find a rich husband. What about that Chad fellow? He is rich and a Christian. Since you like him so much, you really should help him with the children," said Mark.
+
+"I see, this is part of your scheme to get me out of the house and married off to a rich dude. Fine, I will join Chad and the others with all activities I can, but I am doing it for Jesus, not for you!" said Stacy.
+
+Pastor Mark didn't say anything after that; he knew he was in the wrong, but he cared more about the reputation of the church and his reputation. He couldn't very well have his daughter not participate in church activities because it made him look like a failure if they were not meeting religious or social expectations.
+
+Stacy didn't trust the intentions of Luke for starting this sports ministry, nor her father, who was clearly set on getting her to marry a rich man so he wouldn't be financially responsible for her anymore.
+
+Stacy called Chad and told him she wanted to be involved. They discussed strategies for things she could do for kids when they were tired from playing sports. What she didn't tell him was about her father's plan to set them up romantically. Chad was a friend, and she didn't want to make it weird. Even though she liked him as a person, she wasn't interested in any man, especially a rich sports star, because that is what her father wanted for her.
