@@ -64,7 +64,7 @@ The four friends continued to talk about many different things as they ate pizza
 Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth
 was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad Volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
+Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
 Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for
 anything else about him. He always said a dog was man's best friend.
@@ -91,9 +91,9 @@ As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals
 
 "I will tell you what, how about I coach you in chess and also teach you Shogi? I have a collection of board games at home," said Chad.
 
-"Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?" said Stacy:.
+"Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?" said Stacy.
 
-"Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes." said Chad.
+"Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes," said Chad.
 
 "You're not like the other guys in this town, Chad," said Stacy.
 
@@ -109,9 +109,9 @@ As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals
 
 "Yes, I stopped eating animals when I was 16. I was always on the go, so I ate mostly fruit for energy. After a while, I noticed that my performance in sports was better when I didn't eat meat, dairy, eggs, or honey. I always felt sick afterward when I ate them with my family," said Chad.
 
-"But it's also because you don't want to hurt the animals, Isn't it?" said Stacy.
+"But it's also because you don't want to hurt the animals, isn't it?" said Stacy.
 
-"Yes, but you can't tell anyone this." said Chad.
+"Yes, but you can't tell anyone this," said Chad.
 
 "That's silly, why not?" said Stacy.
 
@@ -125,7 +125,7 @@ As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals
 
 This statement by Stacy cut Chad to his core. He never thought about such a thing before. What kind of coward was he that he cared so much about what others would think if they knew he was a Vegan?
 
-"You know what, Stacy, you're right. If I were in their place, I would expect me to be better than I currently am. I am sorry." said Chad.
+"You know what, Stacy, you're right. If I were in their place, I would expect myself to be better than I currently am. I am sorry," said Chad.
 
 "Who are you apologizing to?" said Stacy.
 
@@ -137,15 +137,11 @@ This statement by Stacy cut Chad to his core. He never thought about such a thin
 
 "I am afraid too sometimes. My family doesn't approve of me being vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
 
-"That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy." said Chad.
+"That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy," said Chad.
 
-"Anytime, Chad! It was a pleasure." said Stacy.
+"Anytime, Chad! It was a pleasure," said Stacy.
 
-Chad had met a new friend whom he could trust. He never really talked to
-Stacy before because she seemed like such a shy girl at church. But now
-he saw the strength in her voice and the fire in her eyes as she spoke
-about the animals. Chad and Stacy talked about many things on the days
-they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
+Chad had met a new friend whom he could trust. He never really talked to Stacy before because she seemed like such a shy girl at church. But now he saw the strength in her voice and the fire in her eyes as she spoke about the animals. Chad and Stacy talked about many things on the days they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
 
 # Chapter 3: The Secrets of Chad and Matt
 
