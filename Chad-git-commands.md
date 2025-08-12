@@ -1,3 +1,11 @@
+# Chastity's Git Notes
+
+This file is my notes for my process of learning to use Git. Interestingly, I decided this file will also be part of my repository for my Chad story. I wrote these notes for my own understanding rather than the public. I will write something else if I am ever good enough to teach Git.
+
+---
+
+# First time Git Setup
+
 Git is already installed on my Window and Linux PCs. I decided to use it for my next book project.
 
 Commands used to set up a repository about Chad
@@ -12,6 +20,14 @@ Set up identity.
 
 `git config --global user.name "Chastity White Rose"`
 `git config --global user.email chastitywhiterose@gmail.com`
+
+By default Git will create a branch called **master** when you create a new repository with git init. From Git version 2.28 onwards, you can set a different name for the initial branch.
+
+To set main as the default branch name do:
+
+`git config --global init.defaultBranch main`
+
+Using main as the branch name is important because github repositories use main instead of master.
 
 Check the current config with:
 
