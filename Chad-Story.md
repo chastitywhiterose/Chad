@@ -306,47 +306,41 @@ to Chad about anything.
 
 # Chapter 4: The Town Soccer Game
 
-Chad was scheduled to participate in the annual Soccer game between the
-Podunk Stallions against the Applewood Dragons. He decided to let his
-friends know because they always came to his games to cheer him on.
+Chad was scheduled to participate in the annual Soccer game between the Podunk Stallions against the Applewood Dragons. He decided to let his friends know because they always came to his games to cheer him on.
 
 He called Matt, Luke, and John. Of course, they spread the word to
 everyone else in the small town that on August 2nd, Chad would be
 playing as the team captain as usual. Luke's father, Levi, was the
 coach for the town's team and the biggest sports fan there was, so people quickly found out about the event.
 
-In the meantime, Matt greatly improved his soccer game skills thanks to his practice with Chad. 
+In the meantime, Matt greatly improved his soccer game skills thanks to his practice with Chad.
 
-Chad: I see you have really improved with your kicking aim. Are you ready for a challenge?
+"I see you have really improved with your kicking aim. Are you ready for a challenge?" said Chad.
 
-Matt: What kind of challenge did you have in mind?
+"What kind of challenge did you have in mind?" said Matt.
 
-Chad: I want you to play against my dog, Gold General.
+"I want you to play against my dog, Gold General," said Chad.
 
-Matt: I didn't know your dog played soccer!
+"I didn't know your dog played soccer!" said Matt.
 
-Chad: He does! I mean, he can't kick the ball with a human
-foot, but he makes a great goalie. He can bounce back any ball, even if
-it's flying through the air. Come here, boy! Stand at the goal and try
-to block Matt's kicks!
+"He does! I mean, he can't kick the ball with a human foot, but he makes a great goalie. He can bounce back any ball, even if it's flying through the air. Come here, boy! Stand at the goal and try to block Matt's kicks!" said Chad.
 
 Much to Matt's surprise, Gold General stood in front of the goal.
 Clearly, he had done this before. Matt kicked the ball towards the goal
 several times. The dog blocked 7 of 10 shots, but Matt kicked the ball
 so fast that it flew even before the dog could see and react to it.
 
-Chad: 3 out of 10 isn't bad. Good job, Matt.
+"3 out of 10 isn't bad. Good job, Matt," said Chad.
 
-Matt: It doesn't sound good.
+"It doesn't sound very good," said Matt.
 
-Chad: Are you kidding me? This dog has reflexes better than Luke or John can. He can block things more efficiently because he hears the sound of the ball and knows what direction it is going in. More importantly, if Gold General had not been there, you would have made all ten. You were in the window of the goal because your aim has improved. You don't miss the goal entirely anymore.
+"Are you kidding me? This dog can dodge better than Luke or John can. He can block things more efficiently because he hears the sound of the ball and knows what direction it is going in. More importantly, if Gold General had not been there, you would have made all ten. You were in the window of the goal because your aim has improved. You don't miss the goal entirely anymore," said Chad.
 
-Matt: Thanks, Chad! I owe it all to your help. By the way, I am totally
-coming to your game against the Dragons next week!
+"Thanks, Chad! I owe it all to your help. By the way, I am totally coming to your game against the Dragons next week!" said Matt.
 
-Chad: You better! I don't want to drag you there myself!
+"You better! I don't want to drag you there myself!" said Chad.
 
-Matt: Count on it, Chad!
+"Count on it, Chad!" said Matt.
 
 The day came for the big soccer game. It was not a big event by any
 means nationally, and you would not have heard about it in the news, but
@@ -369,65 +363,58 @@ friends sat around him as he ate. It was always a spectacle to see Chad
 devour a watermelon because nobody ate like him. This time, Stacy also
 sat down with them, and they all had a conversation.
 
-John: How do you keep up your strength, Chad? I would expect you to eat 8 hot dogs after a game like that.
+"How do you keep up your strength, Chad? I would expect you to eat 8 hot dogs after a game like that," said John.
 
-Chad: John, have you ever tried eating a whole watermelon? It is
-full of water, which is what I need after playing in this heat.
+"John, have you ever tried eating a whole watermelon? It is
+full of water, which is what I need after playing in this heat," said Chad.
 
-John: Fair enough, Chad. I guess I should try it sometime!
+"Fair enough, Chad. I guess I should try it sometime!" said John.
 
-Luke: Come to think of it, I have never even seen you eat meat. How do you get your protein?
+"Come to think of it, I have never even seen you eat meat. How do you get your protein?" said Luke.
 
-Chad: Have you ever tried Tofu sandwiches, Luke?
+"Have you ever tried Tofu sandwiches, Luke?" said Chad.
 
-Luke: What kind of sissy do you think I am? Real men eat meat. I bet I
-could beat you in a one-on-one match.
+"What kind of sissy do you think I am? Real men eat meat. I bet I
+could beat you in a one-on-one match," said Luke.
 
-Stacy: What's wrong with being a sissy, Luke? Don't you have a sister?
-That's what a sissy literally means.
+"What's wrong with being a sissy, Luke? Don't you have a sister?
+That's what a sissy literally means," said Stacy.
 
-Luke: Yeah, that's fine for women, but men need calories because we do the most physical tasks and need more food.
+"Yeah, that's fine for women, but men need calories because we do the most physical tasks and need more food," said Luke.
 
-Chad: And you think women don't do hard work? They do housework and give birth to babies. I think they should be given a watermelon and a tofu sandwich after that.
+"And you think women don't do hard work? They do housework and give birth to babies. I think they should be given a watermelon and a tofu sandwich after that," said Chad.
 
-Luke: Chad, since when did you become a feminist?
+"Chad, since when did you become a feminist?" said Luke,
 
-Chad: What's that? Anyhow, if you will kindly leave me to my watermelon, the sissy princess needs her food after dominating the soccer game. But I will take you up on the soccer challenge.
+"What's a feminist? Anyhow, if you will kindly leave me to my watermelon, the sissy princess needs her food after dominating the soccer game. But I will take you up on the soccer challenge," said Chad.
 
-Stacy: Nice response, Chad. Most guys would have gotten angry at being
-insulted like Luke was doing to you.
+"Alright, Chad, I am going to go eat some real food. Catch you later!" said Luke."
 
-Chad: Don't worry about Luke. He's just mad because I get all the
+Luke left to get some hot dogs and chips. The others continued speaking.
+
+"Nice response, Chad. Most guys would have gotten angry at being
+insulted like Luke was doing to you," said Stacy.
+
+"Don't worry about Luke. He's just mad because I get all the
 attention for sports. In fact, he deserves credit for part of the
 victory. He is a great guy as long as he plays sports and keeps his
-mouth shut.
+mouth shut," said Chad.
 
-Stacy: That's what I am worried about. From the abundance of the heart, the mouth speaks.
+"That's what I am worried about. From the abundance of the heart, the mouth speaks," said Stacy.
 
-John: Luke would do well to read the book he was named after.
+"Luke would do well to read the book he was named after," said John.
 
-Chad: So would you, John!
+"So would you, John!" said Chad.
 
-John: You're not wrong, Chad! My favorite verse is actually
-John 3:16: "For God so loved the world, that he gave his only begotten
-Son, that whosoever believeth in him should not perish, but have
-everlasting life.
+"You're not wrong, Chad! My favorite verse is actually John 3:16: "For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life," said John.
 
-Chad: Great way to tell me you don't read the bible without
-telling me you don't read the bible. Everyone knows that verse because
-it's the most popular.
+"Great way to tell me you don't read the bible without telling me you don't read the bible. Everyone knows that verse because it's the most popular," said Chad.
 
-John: Yes, but it's still a good verse!
+"Yes, but it's still a good verse!" said John
 
-Matt: I think the verse right after it is even better. John
-3:17: For God sent not his son into the world to condemn the
-world, but that the world through him might be saved.
+"I think the verse right after it is even better. John 3:17: For God sent not his son into the world to condemn the world, but that the world through him might be saved," said Matt.
 
-Everyone had a good time as they ate and talked about their favorite
-bible verses. Everyone had a good time except for Luke, who really
-didn't like the interaction he had with Chad and was standing in the
-distance, eating hot dogs. He looked at Chad with jealousy because Chad
-was the star. Everyone liked Chad more than they liked him, even Stacy.
+Everyone had a good time as they ate and talked about their favorite bible verses. Everyone had a good time except for Luke, who really didn't like the interaction he had with Chad and was standing in the distance, eating hot dogs. He looked at Chad with jealousy because Chad was the star. Everyone liked Chad more than they liked him, even Stacy.
 
 # Chapter 5: Jealousy is Gross
 
@@ -634,4 +621,16 @@ After Luke left, Chad asked Stacy a question.
 
 "Understood, Stacy, but if you ever change your mind, let me know. You're a great person and the kids will love you," said Chad.
 
-"I do not doubt that. I just prefer not to be in crowds of people and noisy children, said Stacy.
+"I do not doubt that. I just prefer not to be in crowds of people and noisy children," said Stacy.
+
+Chapter 7: Questionable Intentions
+
+The next Sunday, Pastor Mark announced that Chad and Luke were volunteering to teach soccer to children for an hour after church each Sunday morning. He asked people to bring their children who were interested for soccer, food, fun, and Bible stories. He asked for more volunteers, including his daughter Stacy who was not fully on board with it all.
+
+"Stacy, are you going to join the activities with Chad and Luke on Sunday afternoons with the children?" said Mark.
+
+"No, I think I will stay out of it. I don't have anything to contribute, and I would rather stay out of the summer heat," said Stacy.
+
+"But the girls could probably look up to a female role model if you were present. It wouldn't be right to only have Chad, Matthew, Luke, and John be the only adults present," said Mark.
+
+"Are you saying I am only of use for being an adult female so that the girls don't feel left out?"
