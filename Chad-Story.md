@@ -61,144 +61,85 @@ The four friends continued to talk about many different things as they ate pizza
 
 # Chapter 2: Chad meets another Vegan
 
-Chad was a Vegan and did not eat or wear animal products. Whenever his
-friends questioned him about why he didn't eat the same foods as they
-did at social events, he said he ate only plants because it was healthier,
-and he was a sportsman who needed to be in top physical condition. All
-of this was true, but it wasn't the most important reason. The truth
-was that he did not want to eat animals because he believed killing them
-was wrong. He knew this idea would be mocked in his conservative
-religious town. Even his own family ate mostly meat and cheese, but they
-never questioned his diet; after all, they knew he was health-conscious.
+Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth
+was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation for being an animal lover, but in the town of
-Podunk, everyone called themselves animal lovers, but they were not
-vegan. Their love for animals extended only to dogs and cats. Chad
-Volunteered at the animal shelter and cleaned up after the animals. He
-really wanted to be around all kinds of animals, but this was the best
-his town had to offer if someone wanted to be around a species other
-than humans.
+Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad Volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
-Most of all, Chad loved dogs, though. He had a Golden Retriever that he
-played sports with. The reason that Chad loved the game of Soccer more
-than other sports was that it was the easiest sport for his dog to
-play with him. Chad loved playing with his dog more than other humans
-because his dog would not judge him when he missed the goal or for
+Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for
 anything else about him. He always said a dog was man's best friend.
 
-As Chad cleaned the cages, Stacy, who also worked there, feeding all the
-animals, noticed how the dogs seemed to love him. She decided to start a
-conversation.
+As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals, noticed how the dogs seemed to love him. She decided to start a conversation.
 
-Stacy: The dogs seem to really like you!
+"The dogs seem to really like you!" said Stacy.
 
-Chad: I think it's because I understand dogs because of my dog. Dogs like to play just as much as humans do.
+"I think it's because I understand dogs because of my dog. Dogs like to play just as much as humans do," said Chad.
 
-Stacy: What's your dog's name?
+"What's your dog's name?" said Stacy.
 
-Chad: Gold General.
+"Gold General," said Chad.
 
-Stacy: Why that name?
+"Why that name?" said Stacy.
 
-Chad: The Gold General is a piece in the Japanese game of Shogi. Also, my dog is a Golden Retriever, so it was the first thing that popped into my head when I got him.
+"The Gold General is a piece in the Japanese game of Shogi. Also, my dog is a Golden Retriever, so it was the first thing that popped into my head when I got him," said Chad.
 
-Stacy: That makes perfect sense. Do you play Shogi? What is it like?
+"That makes perfect sense. Do you play Shogi? What is it like?" said Stacy.
 
-Chad: It's actually a lot like chess, except it has a few pieces that
-standard chess doesn't have. Do you play chess?
+"It's actually a lot like chess, except it has a few pieces that standard chess doesn't have. Do you play chess?" said Chad.
 
-Stacy: A little bit, but I have no one to play with, so I am not very
-good. I learned from my dad years ago.
+"A little bit, but I have no one to play with, so I am not very good. I learned from my dad years ago," said Stacy.
 
-Chad: I will tell you what, how about I coach you in chess and also
-teach you Shogi? I have a collection of board games at home.
+"I will tell you what, how about I coach you in chess and also teach you Shogi? I have a collection of board games at home," said Chad.
 
-Stacy: Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?
+"Sounds fun, but when are you going to have time for that? Aren't you the number one sports star in the town?" said Stacy:.
 
-Chad: Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes.
+"Yeah, but the big games are only once a month. I practice every day with my dog, and once a week, I get together with my friends and play Soccer and sometimes basketball. I have time to do things like volunteer here and help my parents with chores sometimes." said Chad.
 
-Stacy: You're not like the other guys in this town, Chad.
+"You're not like the other guys in this town, Chad," said Stacy.
 
-Chad: How so? Is that good or bad?
+"How so? Is that good or bad?" said Chad.
 
-Stacy: It's good. What I mean is that you have everything someone could
-want. You have money, fame, looks, and the nicest car in town. In spite
-of all this, you are cleaning up dog poop at an animal shelter! Most
-people in this town think that jobs like this are beneath their dignity
-and that animals are not as important as humans.
+"It's good. What I mean is that you have everything someone could want. You have money, fame, looks, and the nicest car in town. In spite of all this, you are cleaning up dog poop at an animal shelter! Most people in this town think that jobs like this are beneath their dignity and that animals are not as important as humans," said Stacy:
 
-Chad: Sometimes I like animals more than humans. I don't even eat them
-because animals are friends, not food!
+"Sometimes I like animals more than humans. I don't even eat them because animals are friends, not food!" said Chad.
 
-Stacy: You're a Vegan?
+"You're a Vegan?" said Stacy.
 
-*"What do I say? I have never told anyone this because I will be the
-laughingstock of the town if they find out the true reason I don't eat
-like them."* Chad thought to himself. Even so, Stacy seemed like
-someone he could trust with this information, too. If there is anyone who might
-understand, it is her.
+*"What do I say? I have never told anyone this because I will be the laughingstock of the town if they find out the true reason I don't eat like them."* Chad thought to himself. Even so, Stacy seemed like someone he could trust with this information, too. If there is anyone who might understand, it is her.
 
-Chad: Yes, I stopped eating animals when I was 16. I was always on the
-go, so I ate mostly fruit for energy. After a while, I noticed that my
-performance in sports was better when I didn't eat meat, dairy, eggs,
-or honey. I always felt sick afterward when I ate them with my family.
+"Yes, I stopped eating animals when I was 16. I was always on the go, so I ate mostly fruit for energy. After a while, I noticed that my performance in sports was better when I didn't eat meat, dairy, eggs, or honey. I always felt sick afterward when I ate them with my family," said Chad.
 
-Stacy: But it's also because you don't want to hurt the animals,
-Isn't it?
+"But it's also because you don't want to hurt the animals, Isn't it?" said Stacy.
 
-Chad: Yes, but you can't tell anyone this.
+"Yes, but you can't tell anyone this." said Chad.
 
-Stacy: That's silly, why not?
+"That's silly, why not?" said Stacy.
 
-Chad: It isn't good for my reputation in the sports world and this town
-to be seen as sensitive and caring towards animals. At best, I will get
-questions I don't want to answer, and at worst, I will get called a
-bleeding heart liberal like the people my dad makes fun of.
+"It isn't good for my reputation in the sports world and this town to be seen as sensitive and caring towards animals. At best, I will get questions I don't want to answer, and at worst, I will get called a bleeding heart liberal like the people my dad makes fun of," said Chad.
 
-Stacy: You really care what others think of you, don't you?
+"You really care what others think of you, don't you?" said Stacy.
 
-Chad: I kind of have to. If word gets out that I have views that are
-seen as political or related to social issues, it could really mess with
-my sports career. One wrong move, and it's game over, just like chess.
+"I kind of have to. If word gets out that I have views that are seen as political or related to social issues, it could really mess with my sports career. One wrong move, and it's game over, just like chess," said Chad.
 
-Stacy: What about what the animals think of you? If you were in their
-place, would you want those with influence to speak for your rights, or would you accept that their reputation is more important than your own
-life?
+"What about what the animals think of you? If you were in their place, would you want those with influence to speak for your rights, or would you accept that their reputation is more important than your own life?" said Stacy.
 
-This statement by Stacy cut Chad to his core. He never thought about
-such a thing before. What kind of coward was he that he cared so much
-about what others would think if they knew he was a Vegan?
+This statement by Stacy cut Chad to his core. He never thought about such a thing before. What kind of coward was he that he cared so much about what others would think if they knew he was a Vegan?
 
-Chad: You know what, Stacy, you're right. If I were in their place, I
-would expect them to be better than I am. I am sorry.
+"You know what, Stacy, you're right. If I were in their place, I would expect me to be better than I currently am. I am sorry." said Chad.
 
-Stacy: Who are you apologizing to?
+"Who are you apologizing to?" said Stacy.
 
-Chad: The animals that were killed and tortured because I was silent and
-cared more about myself than I did their lives. I didn't even think
-about that.
+"The animals that were killed and tortured because I was silent and cared more about myself than I did their lives. I didn't even think about that," said Chad.
 
-Stacy: Chad, you're really not like the other people in this town. You
-really do have the love of Christ in you. Don't worry, I will keep your
-secret, and only you can decide what to do with your life; I was just
-thinking out loud. I am sorry if I came across as harsh.
+"Chad, you're really not like the other people in this town. You really do have the love of Christ in you. Don't worry, I will keep your secret, and only you can decide what to do with your life; I was just thinking out loud. I am sorry if I came across as harsh," said Stacy.
 
-Chad: No, Stacy, that's the most honest thing I have ever heard anyone
-in this small town say to me in my life. I do want to be a better voice
-for the animals, but I am still afraid.
+"No, Stacy, that's the most honest thing I have ever heard anyone in this small town say to me in my life. I do want to be a better voice for the animals, but I am still afraid," said Chad.
 
-Stacy: I am afraid too sometimes. My family doesn't approve of me being
-vegan, and they say God intended humans to eat animals. My father quotes
-bible verses from Genesis and Leviticus at me sometimes when I don't
-eat with the family because I can't bear to witness them eating my
-friends.
+"I am afraid too sometimes. My family doesn't approve of me being vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
 
-Chad: That sounds really tough. I wouldn't know how to deal with that.
-I have never really dealt with conflict or controversy because I just
-say what I think will make others happy. Anyhow, thanks for talking to
-me, Stacy.
+"That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy." said Chad.
 
-Stacy: Anytime, Chad! It was a pleasure.
+"Anytime, Chad! It was a pleasure." said Stacy.
 
 Chad had met a new friend whom he could trust. He never really talked to
 Stacy before because she seemed like such a shy girl at church. But now
@@ -207,7 +148,6 @@ about the animals. Chad and Stacy talked about many things on the days
 they both worked at the animal shelter. They became the best of friends, but it was their secret that no one else knew.
 
 # Chapter 3: The Secrets of Chad and Matt
-
 
 Chad had made a promise to help train his friend Matt in soccer. Matt
 did not play professionally, but he was a friend that Chad had played
