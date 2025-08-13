@@ -29,6 +29,10 @@ To set main as the default branch name do:
 
 Using main as the branch name is important because github repositories use main instead of master.
 
+Optionally set the editor for commit messages.
+
+`git config --global core.editor C:/Users/chand/editors/wscite557/wscite/SciTE.exe`
+
 Check the current config with:
 
 `git config --list`
