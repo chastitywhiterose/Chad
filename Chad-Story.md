@@ -584,3 +584,101 @@ Pastor Mark didn't say anything after that; he knew he was in the wrong, but he 
 Stacy didn't trust the intentions of Luke for starting this sports ministry, nor her father, who was clearly set on getting her to marry a rich man so he wouldn't be financially responsible for her anymore.
 
 Stacy called Chad and told him she wanted to be involved. They discussed strategies for things she could do for kids when they were tired from playing sports. What she didn't tell him was about her father's plan to set them up romantically. Chad was a friend, and she didn't want to make it weird. Even though she liked him as a person, she wasn't interested in any man, especially a rich sports star, because that is what her father wanted for her.
+
+# Chapter 8: The First Children's Soccer Sunday
+
+Chad and Stacey had agreed to help supervise the kids after church on Sunday afternoons and entertain them with Soccer, food, and bible stories. Pastor Mark was there too to make sure everything went okay. Chad and Luke planned to split the children into two groups and coach them in how to play soccer efficiently.
+
+"We need to decided how to divide the teams so they can play against each other," said Chad.
+
+"You're right, Chad. How about boys vs. girls?" said Luke.
+
+"We have 13 boys and 11 girls. I am not sure how that evens out. Besides, it seems kind of arbitrary to pick gender as the deciding factor, but I suppose we can ask the kids," said Chad.
+
+"Hey kids, we need to divide the teams. How do you feel about boys vs. girls?" said Luke.
+
+The children agreed, but then Luke continued.
+
+"Because we have 13 boys and 11 girls, one of the boys will join the girls team. Are there any volunteers?" said Luke.
+
+"I will join the girls," said an 8 year old boy named Simon.
+
+"Very well, but which of us coaches which team?" said Chad.
+
+"I will take the boys and you take the girls," said Luke.
+
+"Okay Luke, let's go over the rules and then have them play for an hour before a lunch break," said Chad.
+
+The two teams of kids had a lot of fun as they kicked the soccer ball. Ironically, only 6 goals were scored during the hour while several were blocked by the goalies.
+
+When it was time to eat, everyone wondered what food would be offered. They were surpised to see something that they had never eaten before. What exactly was it?
+
+"What are these sandwiches made of?", said Simon.
+
+"Tofu and bread! It was Chad's idea," said Stacey, who had grilled 30 of them during the hour long soccer game.
+
+"You have gotta be kidding me, Chad. Are you trying to starve these kids?" said Luke.
+
+"Not at all. Kids, you will find that the tofu fills you up. We have both ketchup and mustard to put on your sandwiches. Give it a try," said Chad.
+
+Chad took some slices of Tofu and put it on bread. Then he mixed ketchup and mustard before taking a big bite. The children seemed reluctant, but they were willing to give it a try because, after all, this was Chad. He was strong and athletic, so if this is how he ate, it was worth a try.
+
+"This is delicious!" said Simon.
+
+"Glad you like it," said Chad.
+
+"Chad, I can't believe you would force your weird eating habits on these children! You should bring real food next time!" said Luke.
+
+"Luke, you're welcome to bring whatever food for the children you want each week. As for me, I can't imagine giving them anything less than the best I have found that works for my soccer career.
+
+"Listen everybody, while we eat, I have a Bible story for you that you probably haven't heard before."
+
+The children looked up, quite curious. Then Stacy began to read from the King James Bible that her father had insisted she use for reading to these kids.
+
+---
+
+Daniel 1:1 In the third year of the reign of Jehoiakim king of Judah came Nebuchadnezzar king of Babylon unto Jerusalem, and besieged it.
+
+2 And the Lord gave Jehoiakim king of Judah into his hand, with part of the vessels of the house of God: which he carried into the land of Shinar to the house of his god; and he brought the vessels into the treasure house of his god.
+
+3 And the king spake unto Ashpenaz the master of his eunuchs, that he should bring [certain] of the children of Israel, and of the king's seed, and of the princes; 
+
+---
+
+By the time Stacy had gotten this far, the children looked confused.
+
+"I don't understand this at all. Can you explain it in a way kids can understand?" said Simon.
+
+"Don't worry, I got this. I don't read the King James Version myself. I think I can explain this story in a more relatable way. Chad began to paraphrase it the best he could in modern English.
+
+---
+
+"There was a dude who called himself the King of Babylon. He went to war against Jerusalem and took their treasures. He also made some of them his servants in his palace.
+
+These guys were named Daniel, Hananiah, Mishael, and Azariah. The King appointed a guy named Ashpenaz master of the eunuchs. He was ordered to give them meat and wine, similar to what the King ate while training them to be servants for the king.
+
+But one of the 4 captives, Daniel, ate differently that most people. He asked Ashpenaz to only give him vegetables and water. Ashpenaz refused to do this because he was afraid the king would kill him if any of the servants looked mal-nourished."
+
+---
+
+"So what did Daniel do when Ashpenaz didn't agree?" said Simon.
+
+---
+
+"He went to the assistant manager that Ashpenaz had left in charge. Daniel asked for he and his 3 friends to be given only water and vegetables for ten days to prove how healthy they could be without the king's food. Melzar thought this was an acceptable test.
+
+At the end of the ten days, Melzar saw that they looked healthier than the other servants who regularly ate the king's meat and wine. So he made their diet permanent because it seemed to be working for them, even though he probably didn't understand it."
+
+---
+
+"Chad, is this Bible story the reason you never eat meat?" asked Luke.
+
+"It's not the only reason, but if it works, why change it?" said Chad.
+
+The children were amazed at this story and wondered if it was true they could eat vegetables and drink water. Would they be strong and healthy like Chad if they did?
+
+"Thanks for helping out, Chad. I couldn't read the King James Bible for long because it's just not the way we talk anymore. Clearly you have read this story many times," said Stacy.
+
+"Thank you for grilling the tofu, Stacy. It tastes amazing when it is slightly burnt on the grill," said Chad.
+
+Everyone had a good day, except for Luke. He watched as the kids asked for more tofu while Chad and Stacy discussed future Bible stories that might interest the kids. He had only made Chad more popular with his scheme of a soccer ministry for kids.
