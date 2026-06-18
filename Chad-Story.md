@@ -732,9 +732,34 @@ The children hissed and booed at Luke. They wanted no part of eating animals and
  
  "The presidents and princes became jealous of Daniel because he was their boss and the king liked him more. Therefore, they tried to find a way to turn the king against him. They asked king Darius to write a decree that for the next 30 days, anyone who prays to any God or human other than him to be thrown into a den of lions. He agreed and wrote a decree that anyone caught praying to someone else would be executed by being thrown into the Lion's Den. Though he didn't realize that this was a trap being set for his most trusted servant Daniel."
  
+ "The men who asked him to make the decree knew they would find Daniel praying near his window as he always had. Daniel knew about the law but he still prayed to God 3 times a day and didn't change anything he did."
  
-
+ "Why didn't he just keep his prayers hidden or hide somewhere where the bad guys couldn't catch him?", said a young boy named Trevor.
  
+ "I think that he knew it was better to be faithful to God and live in his truth, even though he knew he might be in trouble for it.", said Chad.
+ 
+ "What happened after that?", said multiple children.
+ 
+ "The princes and presidents told the king that Daniel was still praying to his God, despite the decree. They demanded that he be thrown into the Lion's Den as was written in the executive order.", said Chad.
+ 
+ "The king tried to talk his way out of his, but the law of the king could not be disobeyed even by the king himself because he would be admitting he made a mistake and was not a God. He knew he had been tricked by the bad guys. Daniel was thrown into the Lion's Den and the king could not eat or sleep that night because he was so worried about Daniel. The next day he went and found that Daniel was still alive. The lions had not even touched him. Daniel said that God closed the mouth of the lions because he was innocent.", said Chad.
+ 
+ "At that moment, the king ordered Daniel to be taken out of the den and to throw in all the men who had accused Daniel. The lions tore them each up before they even hit the ground. He then made a new executive order that everyone should worship and pray to the God of Daniel. He believed that he was the true God who could make sure that even hungry lions would not eat the innocent.", said Chad.
+ 
+ "Come on Chad, do you really believe this story? Those lions would have eaten Daniel if he was in there all night.", said Luke.
+ 
+ "Tell me Luke, do you believe the flood story you told the children in Genesis? Do you really think that a God who prevents lions eating an innocent many would drown all the innocent animals of the whole earth and that only 8 humans were righteous enough to be saved?", said Chad.
 
+ "Well, these stories are both part of the Bible, so I guess they are both true.", said Luke.
+ 
+ "But that's not what I asked you, Luke. I asked do YOU believe the story you read to the children.", said Chad.
+ 
+ "I am not sure. But do you believe the story of Daniel in the Lion's Den?", said Luke.
+ 
+ "You bet I do. It only makes sense. Daniel was innocent and he had done nothing wrong. We also know that he did not eat meat from last week's story. He did not have the smell of meat on him and the lions probably didn't think he smelled like food. The probably would have left him alone even if God had not intervened. This story not only matches what I believe but it makes sense to my brain as well", said Chad.
+
+The children clapped and continued to enjoy the salty chips and the cool. Lemonade. Chad knew just what their bodies needed in the summer heat, and told a story that they could understand and relate to.
+
+Nobody touched Luke's hot dogs, not even him. He was too angry to eat. He was jealous of Chad just like the princes and presidents that had tried to turn king Darius against Daniel.
 
 # Chapter 10: 
