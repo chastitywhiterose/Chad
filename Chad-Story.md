@@ -61,8 +61,7 @@ The four friends continued to talk about many different things as they ate pizza
 
 # Chapter 2: Chad meets another Vegan
 
-Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth
-was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
+Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
 Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
@@ -688,78 +687,78 @@ Everyone had a good day, except for Luke. He watched as the kids asked for more 
 
 Chad was hard at work finding Bible stories he could tell the kids while they ate after soccer. He had managed to speak the story from Daniel chapter 1 in his own words, which made more sense than how it sounded in the King James Bible.
 
-Meanwhile, Luke was also busy picking his own set of Bible stories. He was looking for something he could use to fight against Chad's Vegan diet and also justify his own beliefs of eating meat. He also remembered that Chad said he could bring any food he wanted for the children. He decided to buy some regular hot dogs and buns because he knew it would make Chad angry.
+Meanwhile, Luke was also busy picking his own set of Bible stories. He was looking for something he could use to fight against Chad's Vegan diet and also justify his own beliefs about eating meat. He also remembered that Chad said he could bring any food he wanted for the children. He decided to buy some regular hot dogs and buns because he knew it would make Chad angry.
 
-On the next Sunday, Chad and Luke coached the kids in soccer and everyone had a lot of fun. There seemed to be more children there than the previous week. Chad said it was probably because they told their friends about the fun of soccer and free food.
+On the next Sunday, Chad and Luke coached the kids in soccer, and everyone had a lot of fun. There seemed to be more children there than the previous week. Chad said it was probably because they told their friends about the fun of soccer and free food.
 
-When it was time for lunch, Chad got a big cooler out of his car and bags of chips. This surprised Luke a lot because he had expected Tofu sandwiches. He also noticed that there was no grill and Stacy wasn't there.
+When it was time for lunch, Chad got a big cooler out of his car and bags of chips. This choice of food surprised Luke, because he had expected Tofu sandwiches. He also noticed that there was no grill, and Stacy wasn't there.
 
 Chad served everyone a plate full of chips and filled several cups with cold lemonade. He brought a cup to each child and told them to come to the table for more if they were still thirsty.
 
-"Chad, do you have a Bible story prepared today?", said Luke.
+"Chad, do you have a Bible story prepared today?" said Luke.
 
- "You bet I do, but first I need to drink some lemonade." , said Chad.
- 
- "In that case, I will tell my story.", said Luke.
- 
- "The story begins in Genesis chapter 6 when humans were so evil that God regretted making them. He decided the earth needed a great reset. He liked a man named Noah who was righteous and told him to build a big boat called an ark. He and his family would collect animals and lots of food to eat during a flood that would drown every other living thing. The only humans on the ark were Noah, his wife, their 3 sons, and their wives. They also had a male and female of every kind of animal.", said Luke.
- 
- "Why did all the animals on the earth have to die?", said Simon.
- 
- "They were not necessary because the animals on the ark would reproduce after the flood and there would be more of all the animals.", said Luke.
- 
- "What does it mean to reproduce?", asked Simon.
- 
- "You might want to ask your parents about that. I am not qualified to answer that, especially for children. Anyhow, that's not the point. After the flood ended, God gave humans permission to eat animals for food. In Genesis chapter 9, God said
- 
+"You bet I do, but first I need to drink some lemonade," said Chad.
+
+"In that case, I will tell my story," said Luke.
+
+"The story begins in Genesis chapter 6, when humans were so evil that God regretted making them. He decided the earth needed a great reset. He liked a man named Noah, who was righteous, and told him to build a big boat called an ark. He and his family would collect animals and lots of food to eat during a flood that would drown every other living thing. The only humans on the ark were Noah, his wife, their 3 sons, and their wives. They also had a male and female of every kind of animal," said Luke.
+
+"Why did all the animals on the earth have to die?" said Simon.
+
+"They were not necessary because the animals on the ark would reproduce after the flood, and there would be more of all the animals," said Luke.
+
+"What does it mean to reproduce?" asked Simon.
+
+"You might want to ask your parents about that. I am not qualified to answer that, especially for children. Anyhow, that's not the point. After the flood ended, God gave humans permission to eat animals for food. In Genesis chapter 9, God said
+
 ```
 
-And God blessed Noah and his sons, and said unto them, Be fruitful , and multiply , and replenish the earth.
+And God blessed Noah and his sons, and said unto them, Be fruitful, and multiply, and replenish the earth.
 
-2 And the fear of you and the dread of you shall be upon every beast of the earth, and upon every fowl of the air, upon all that moveth [upon] the earth, and upon all the fishes of the sea; into your hand are they delivered .
+2 And the fear of you and the dread of you shall be upon every beast of the earth, and upon every fowl of the air, upon all that moveth [upon] the earth, and upon all the fishes of the sea; into your hand are they delivered.
 
 3 Every moving thing that liveth shall be meat for you; even as the green herb have I given you all things.
 
 ```
 
-So you see, animals exist to be eaten, which reminds me, I brought hot dogs", said Luke.
+"So you see, animals exist to be eaten, which reminds me, I brought hot dogs," said Luke.
 
-The children hissed and booed at Luke. They wanted no part of eating animals and they were quite traumatized from the Noah's Ark story. They asked Chad to tell another Daniel story.
+The children hissed and booed at Luke. They wanted no part of eating animals, and they were quite traumatized by the Noah's Ark story. They asked Chad to tell another Daniel story.
 
- "Of course I can tell you a story, said Chad.
+"Of course, I can tell you a story," said Chad.
 
- "Many years after king Nebuchadnezzar died and also his son Belshazzar was killed, a new king named Darius took over. In spite of this, Daniel was still trusted by the new king and still considered a wise man or a prophet because he had interpreted dreams for King Nebuchadnezzar and had translated the writing on the wall for Belshazzar. He was assigned to be in authority over the princes and presidents."
- 
- "The presidents and princes became jealous of Daniel because he was their boss and the king liked him more. Therefore, they tried to find a way to turn the king against him. They asked king Darius to write a decree that for the next 30 days, anyone who prays to any God or human other than him to be thrown into a den of lions. He agreed and wrote a decree that anyone caught praying to someone else would be executed by being thrown into the Lion's Den. Though he didn't realize that this was a trap being set for his most trusted servant Daniel."
- 
- "The men who asked him to make the decree knew they would find Daniel praying near his window as he always had. Daniel knew about the law but he still prayed to God 3 times a day and didn't change anything he did."
- 
- "Why didn't he just keep his prayers hidden or hide somewhere where the bad guys couldn't catch him?", said a young boy named Trevor.
- 
- "I think that he knew it was better to be faithful to God and live in his truth, even though he knew he might be in trouble for it.", said Chad.
- 
- "What happened after that?", said multiple children.
- 
- "The princes and presidents told the king that Daniel was still praying to his God, despite the decree. They demanded that he be thrown into the Lion's Den as was written in the executive order.", said Chad.
- 
- "The king tried to talk his way out of his, but the law of the king could not be disobeyed even by the king himself because he would be admitting he made a mistake and was not a God. He knew he had been tricked by the bad guys. Daniel was thrown into the Lion's Den and the king could not eat or sleep that night because he was so worried about Daniel. The next day he went and found that Daniel was still alive. The lions had not even touched him. Daniel said that God closed the mouth of the lions because he was innocent.", said Chad.
- 
- "At that moment, the king ordered Daniel to be taken out of the den and to throw in all the men who had accused Daniel. The lions tore them each up before they even hit the ground. He then made a new executive order that everyone should worship and pray to the God of Daniel. He believed that he was the true God who could make sure that even hungry lions would not eat the innocent.", said Chad.
- 
- "Come on Chad, do you really believe this story? Those lions would have eaten Daniel if he was in there all night.", said Luke.
- 
- "Tell me Luke, do you believe the flood story you told the children in Genesis? Do you really think that a God who prevents lions eating an innocent many would drown all the innocent animals of the whole earth and that only 8 humans were righteous enough to be saved?", said Chad.
+"Many years after King Nebuchadnezzar died, and also his son Belshazzar was killed, a new king named Darius took over. In spite of this, Daniel was still trusted by the new king and still considered a wise man or a prophet because he had interpreted dreams for King Nebuchadnezzar and had translated the writing on the wall for Belshazzar. He was assigned to be in authority over the princes and presidents," said Chad.
 
- "Well, these stories are both part of the Bible, so I guess they are both true.", said Luke.
- 
- "But that's not what I asked you, Luke. I asked do YOU believe the story you read to the children.", said Chad.
- 
- "I am not sure. But do you believe the story of Daniel in the Lion's Den?", said Luke.
- 
- "You bet I do. It only makes sense. Daniel was innocent and he had done nothing wrong. We also know that he did not eat meat from last week's story. He did not have the smell of meat on him and the lions probably didn't think he smelled like food. The probably would have left him alone even if God had not intervened. This story not only matches what I believe but it makes sense to my brain as well", said Chad.
+"The presidents and princes became jealous of Daniel because he was their boss and the king liked him more. Therefore, they tried to find a way to turn the king against him. They asked King Darius to write a decree that for the next 30 days, anyone who prays to any God or human other than him would be thrown into a den of lions. He agreed and wrote a decree that anyone caught praying to someone else would be executed by being thrown into the Lion's Den. Though he didn't realize that this was a trap being set for his most trusted servant, Daniel," said Chad.
 
-The children clapped and continued to enjoy the salty chips and the cool. Lemonade. Chad knew just what their bodies needed in the summer heat, and told a story that they could understand and relate to.
+"The men who asked him to make the decree knew they would find Daniel praying near his window as he always had. Daniel knew about the law, but he still prayed to God 3 times a day and didn't change anything he did."
 
-Nobody touched Luke's hot dogs, not even him. He was too angry to eat. He was jealous of Chad just like the princes and presidents that had tried to turn king Darius against Daniel.
+"Why didn't he just keep his prayers hidden or hide somewhere where the bad guys couldn't catch him?" said a young boy named Trevor.
+
+"I think that he knew it was better to be faithful to God and live in his truth, even though he knew he might be in trouble for it," said Chad.
+
+"What happened after that?" said multiple children.
+
+"The princes and presidents told the king that Daniel was still praying to his God, despite the decree. They demanded that he be thrown into the Lion's Den as was written in the executive order," said Chad.
+
+"The king tried to talk his way out of his, but the law of the king could not be disobeyed even by the king himself because he would be admitting he made a mistake and was not a God. He knew he had been tricked by the bad guys. Daniel was thrown into the Lion's Den, and the king could not eat or sleep that night because he was so worried about Daniel. The next day, he went and found that Daniel was still alive. The lions had not even touched him. Daniel said that God closed the mouth of the lions because he was innocent," said Chad.
+
+"At that moment, the king ordered Daniel to be taken out of the den and to throw in all the men who had accused Daniel. The lions tore them each up before they even hit the ground. He then made a new executive order that everyone should worship and pray to the God of Daniel. He believed that he was the true God who could make sure that even hungry lions would not eat the innocent," said Chad.
+
+"Come on, Chad, do you really believe this story? Those lions would have eaten Daniel if he were in there all night," said Luke.
+
+"Tell me, Luke, do you believe the flood story you told the children in Genesis? Do you really think that a God who prevents lions from eating innocent man would drown all the innocent animals of the whole earth, and that only 8 humans were righteous enough to be saved?" said Chad.
+
+"Well, these stories are both part of the Bible, so I guess they are both true," said Luke.
+
+"But that's not what I asked you, Luke. I asked whether YOU believe the story you read to the children," said Chad.
+
+"I am not sure. But do you believe the story of Daniel in the Lion's Den?" said Luke.
+
+"You bet I do. It only makes sense. Daniel was innocent, and he had done nothing wrong. We also know that he did not eat meat from last week's story. He did not have the smell of meat on him, and the lions probably didn't think he smelled like food. They probably would have left him alone even if God had not intervened. This story not only matches what I believe, but it makes sense to my brain as well," said Chad.
+
+The children clapped and continued to enjoy the salty chips and the cool. Lemonade. Chad knew just what their bodies needed in the summer heat and told a story that they could understand and relate to.
+
+Nobody touched Luke's hot dogs, not even him. He was too angry to eat. He was jealous of Chad, just like the princes and presidents who had tried to turn King Darius against Daniel.
 
 # Chapter 10: 
