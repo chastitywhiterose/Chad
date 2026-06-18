@@ -688,7 +688,7 @@ Everyone had a good day, except for Luke. He watched as the kids asked for more 
 
 Chad was hard at work finding Bible stories he could tell the kids while they ate after soccer. He had managed to speak the story from Daniel chapter 1 in his own words, which made more sense than how it sounded in the King James Bible.
 
-Meanwhile, Luke was also busy picking his own set of Bible stories. He was looking for something he could use to fight against Chad's Vegan diet and also justify his own beliefs of eating meat. He also remembered that Chad said he could bring any food he wanted for the children. He decided to buy some regular hotdogs and buns because he knew it would make Chad angry.
+Meanwhile, Luke was also busy picking his own set of Bible stories. He was looking for something he could use to fight against Chad's Vegan diet and also justify his own beliefs of eating meat. He also remembered that Chad said he could bring any food he wanted for the children. He decided to buy some regular hot dogs and buns because he knew it would make Chad angry.
 
 On the next Sunday, Chad and Luke coached the kids in soccer and everyone had a lot of fun. There seemed to be more children there than the previous week. Chad said it was probably because they told their friends about the fun of soccer and free food.
 
@@ -698,6 +698,43 @@ Chad served everyone a plate full of chips and filled several cups with cold lem
 
 "Chad, do you have a Bible story prepared today?", said Luke.
 
- "You bet I do
+ "You bet I do, but first I need to drink some lemonade." , said Chad.
+ 
+ "In that case, I will tell my story.", said Luke.
+ 
+ "The story begins in Genesis chapter 6 when humans were so evil that God regretted making them. He decided the earth needed a great reset. He liked a man named Noah who was righteous and told him to build a big boat called an ark. He and his family would collect animals and lots of food to eat during a flood that would drown every other living thing. The only humans on the ark were Noah, his wife, their 3 sons, and their wives. They also had a male and female of every kind of animal.", said Luke.
+ 
+ "Why did all the animals on the earth have to die?", said Simon.
+ 
+ "They were not necessary because the animals on the ark would reproduce after the flood and there would be more of all the animals.", said Luke.
+ 
+ "What does it mean to reproduce?", asked Simon.
+ 
+ "You might want to ask your parents about that. I am not qualified to answer that, especially for children. Anyhow, that's not the point. After the flood ended, God gave humans permission to eat animals for food. In Genesis chapter 9, God said
+ 
+```
+
+And God blessed Noah and his sons, and said unto them, Be fruitful , and multiply , and replenish the earth.
+
+2 And the fear of you and the dread of you shall be upon every beast of the earth, and upon every fowl of the air, upon all that moveth [upon] the earth, and upon all the fishes of the sea; into your hand are they delivered .
+
+3 Every moving thing that liveth shall be meat for you; even as the green herb have I given you all things.
+
+```
+
+So you see, animals exist to be eaten, which reminds me, I brought hot dogs", said Luke.
+
+The children hissed and booed at Luke. They wanted no part of eating animals and they were quite traumatized from the Noah's Ark story. They asked Chad to tell another Daniel story.
+
+ "Of course I can tell you a story, said Chad.
+
+ "Many years after king Nebuchadnezzar died and also his son Belshazzar was killed, a new king named Darius took over. In spite of this, Daniel was still trusted by the new king and still considered a wise man or a prophet because he had interpreted dreams for King Nebuchadnezzar and had translated the writing on the wall for Belshazzar. He was assigned to be in authority over the princes and presidents."
+ 
+ "The presidents and princes became jealous of Daniel because he was their boss and the king liked him more. Therefore, they tried to find a way to turn the king against him. They asked king Darius to write a decree that for the next 30 days, anyone who prays to any God or human other than him to be thrown into a den of lions. He agreed and wrote a decree that anyone caught praying to someone else would be executed by being thrown into the Lion's Den. Though he didn't realize that this was a trap being set for his most trusted servant Daniel."
+ 
+ 
+
+ 
+
 
 # Chapter 10: 
