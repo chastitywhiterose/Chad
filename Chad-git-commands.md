@@ -18,7 +18,7 @@ To find where the configurations files are.
 
 Set up identity.
 
-`git config --global user.name "Chastity White Rose"`
+`git config --global user.name "Chastity White Rose"`  
 `git config --global user.email chastitywhiterose@gmail.com`
 
 By default Git will create a branch called **master** when you create a new repository with git init. From Git version 2.28 onwards, you can set a different name for the initial branch.

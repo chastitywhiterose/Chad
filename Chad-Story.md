@@ -629,9 +629,9 @@ Chad took some slices of tofu and put them on bread. Then he mixed ketchup and m
 
 "Chad, I can't believe you would force your weird eating habits on these children! You should bring real food next time!" said Luke.
 
-"Luke, you're welcome to bring whatever food for the children you want each week. As for me, I can't imagine giving them anything less than the best I have found that works for my soccer career.
+"Luke, you're welcome to bring whatever food for the children you want each week. As for me, I can't imagine giving them anything less than the best I have found that works for my soccer career." said chad.
 
-"Listen, everybody, while we eat, I have a Bible story for you that you probably haven't heard before."
+"Listen, everybody, while we eat, I have a Bible story for you that you probably haven't heard before." said Stacy.
 
 The children looked up, quite curious. Then Stacy began to read from the King James Bible that her father had insisted she use for reading to these kids.
 
@@ -683,3 +683,19 @@ The children were amazed at this story and wondered if it was true that they cou
 "Thank you for grilling the tofu, Stacy. It tastes amazing when it is slightly burnt on the grill," said Chad.
 
 Everyone had a good day, except for Luke. He watched as the kids asked for more tofu while Chad and Stacy discussed future Bible stories that might interest the kids. He had only made Chad more popular with his scheme of a soccer ministry for kids.
+
+# Chapter 9: Chad and Luke Share Bible Stories
+
+Chad was hard at work finding Bible stories he could tell the kids while they ate after soccer. He had managed to speak the story from Daniel chapter 1 in his own words, which made more sense than how it sounded in the King James Bible.
+
+Meanwhile, Luke was also busy picking his own set of Bible stories. He was looking for something he could use to fight against Chad's Vegan diet and also justify his own beliefs of eating meat. He also remembered that Chad said he could bring any food he wanted for the children. He decided to buy some regular hotdogs and buns because he knew it would make Chad angry.
+
+On the next Sunday, Chad and Luke coached the kids in soccer and everyone had a lot of fun. There seemed to be more children there than the previous week. Chad said it was probably because they told their friends about the fun of soccer and free food.
+
+When it was time for lunch, Chad got a big cooler out of his car and bags of chips. This surprised Luke a lot because he had expected Tofu sandwiches. He also noticed that there was no grill and Stacy wasn't there.
+
+Chad served everyone a plate full of chips and filled several cups with cold lemonade. He brought a cup to each child and told them to come to the table for more if they were still thirsty.
+
+"Chad, do you have a Bible story prepared today?", said Luke.
+
+# Chapter 10: 
