@@ -698,4 +698,6 @@ Chad served everyone a plate full of chips and filled several cups with cold lem
 
 "Chad, do you have a Bible story prepared today?", said Luke.
 
+ "You bet I do
+
 # Chapter 10: 
