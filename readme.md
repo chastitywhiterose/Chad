@@ -761,4 +761,54 @@ The children clapped and continued to enjoy the salty chips and the cool. Lemona
 
 Nobody touched Luke's hot dogs, not even him. He was too angry to eat. He was jealous of Chad, just like the princes and presidents who had tried to turn King Darius against Daniel.
 
-# Chapter 10: 
+# Chapter 10: A Teacher's Burden
+
+Chad was concerned about what the young boy Simon had said to Luke regarding the flood in Genesis. Sure, he knew about the story, but when Luke told the children about God killing all the animals with a flood, something in him broke. How could he know what stories were true or not? He decided to focus more on the teachings of Jesus and began reading the Bible more and also doing other research.
+
+Meanwhile, Stacy had also become concerned. She took a break for several weeks and did not join Chad and Luke for the soccer and Bible stories because she felt like she had nothing to contribute and didn't want to be around Luke because he was so rude to Chad. Oddly enough, Stacy met Chad at the library one day when they both went to look at children's books.
+
+"Stacy! What brings you to the library?" asked Chad.
+
+"Oh, hi Chad. I wanted to find some books with Bible stories for children. I liked the way you explained the story of Daniel and his friends in a language they could understand.", said Stacy.
+
+"That is sort of why I am here too. I need inspiration because I know a lot of stories, but some of them are not relatable to children or can traumatize them. I also haven't seen your for awhile, are you okay?", said Chad.
+
+"Yeah, I am okay...I guess. I just didn't really want to be on the spot and have the responsibility of children looking up to me as an example when I am really not sure what I am doing with my life.", said Stacy.
+
+"You know, it's funny because I think the same thing about myself. Like, am I teaching these kids the truth about God or am I cherry picking the Bible verses I agree with and ignoring those I don't? Maybe I am not cut out for teaching anything but soccer and board games. They have consistent rules I can follow, but am I really a good Christian?" said Chad.
+
+"What are you talking about, Chad? You are the best Christian in the town. None of us has all the answers, but you explained everything to Gabby when she interviewed you at the animal shelter. What you do for the animals, you are doing for Jesus.", said Stacy.
+
+"Yeah, you're probably right, but living for Jesus and teaching other people are two different things. Besides, Luke makes me doubt what is true about God.", said Chad.
+
+"Did something happen with Luke?" asked Stacy.
+
+"Every week something happens with Luke. He tells the children Bible stories from the Old Testament, where God tells the Israelites to kill people in war. It all started when he told the flood story of Genesis 6 about God drowning all life on the planet except for those on the ark.", said Chad.
+
+"Oh, I see. No wonder you seem so down. I am not so sure what to think about those stories either. They seem rather different than the teachings of Jesus. What are you going to do about soccer Sundays with the kids?" asked Stacy.
+
+"I was thinking of quitting. I don't want to disappoint the kids, but I just can't watch their faces as Luke tells them horror stories from the book that we are told is God's word. I need some time to pray and think about it.
+
+"I understand completely, Chad. That is why I have been absent too. Just because I am a pastor's daughter doesn't mean I am a good Christian.", said Stacy.
+
+"Nonsense, Stacy. You serve animals, and you haven't been around humans the whole time I have known you to have possibly sinned anyway. You're probably second in righteousness only to Jesus.", said Chad.
+
+"Yeah, not quite. I also have a tattoo of a butterfly on my butt, and that is a violation of Leviticus 19:28.", said Stacy.
+
+"Stacy, I am not here to judge!" said Chad
+
+"But do you still think I am a good Christian even though I have mutilated my butt and fallen short of the glory of God?", said Stacy.
+
+"We have all sinned and fallen short of the glory of God, but I have to ask, why a butterfly?" asked Chad.
+
+"A butterfly starts as a caterpillar. Everyone expects it just to be what it was born as, but then it surprises everyone when it hides away for awhile and is then reborn as a new creature. It is like becoming a Christian by being born again.", said Stacy.
+
+"I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament as a sign that you became something new?" said Chad.
+
+"Exactly, Chad, 2 Corinthians 5:17 says:
+
+***"Therefore, if any man be in Christ, he is a new creature: old things are passed away; behold, all things are become new."***
+
+So I believe that we should follow the new testament whenever there is a conflict between the old and the new. ", said Stacy.
+
+"Somehow, that makes a lot of sense. Thanks, Stacy. I think I know what I need to do about Luke and the kids."
