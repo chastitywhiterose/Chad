@@ -771,7 +771,7 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "Oh, hi Chad. I wanted to find some books with Bible stories for children. I liked the way you explained the story of Daniel and his friends in a language they could understand.", said Stacy.
 
-"That is sort of why I am here too. I need inspiration because I know a lot of stories, but some of them are not relatable to children or can traumatize them. I also haven't seen your for awhile, are you okay?", said Chad.
+"That is sort of why I am here too. I need inspiration because I know a lot of stories, but some of them are not relatable to children or can traumatize them. I also haven't seen you for awhile, are you okay?", said Chad.
 
 "Yeah, I am okay...I guess. I just didn't really want to be on the spot and have the responsibility of children looking up to me as an example when I am really not sure what I am doing with my life.", said Stacy.
 
@@ -803,7 +803,7 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "A butterfly starts as a caterpillar. Everyone expects it just to be what it was born as, but then it surprises everyone when it hides away for awhile and is then reborn as a new creature. It is like becoming a Christian by being born again.", said Stacy.
 
-"I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament as a sign that you became something new?" said Chad.
+"I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament sin as a sign that you became something new?" said Chad.
 
 "Exactly, Chad, 2 Corinthians 5:17 says:
 
