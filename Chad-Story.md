@@ -812,3 +812,27 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 So I believe that we should follow the new testament whenever there is a conflict between the old and the new. ", said Stacy.
 
 "Somehow, that makes a lot of sense. Thanks, Stacy. I think I know what I need to do about Luke and the kids."
+
+# Chapter 11: The Christmas Story
+
+"What are you going to do about soccer Sundays and the Bible stories for the kids." said Stacy.
+
+"I have an idea, but I need your help. I also want you to be there next time and bring your dad, pastor Mark. I will also make sure that Matt and John are there." said Chad.
+
+"OK I can do it, but why does my dad have to be there?" said Stacy.
+
+"Because he is the pastor and it should be his job to care if people are learning about Jesus and what it means to be a Christian. I would like him to step in sometimes, especially when kids have difficult questions. Regardless, I will answer every question they ask of me and I would like you to also do the same." said Chad.
+
+"OK I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
+
+"Yes, bring your favorite vegan food and the King James Version Bible your father gave you." said Chad.
+
+"You know I can't read that confusing Bible, Chad." said Stacy.
+
+"Don't worry, I will make Luke read it this time as his punishment for scaring the kids with old testament horror stories." said Chad.
+
+"That is a plan I can get behind. I will see you Sunday afternoon." said Stacy.
+
+"Sure thing, Stacy. Thanks to you and your butterfly I am a new man!" said Chad.
+
+After leaving the library, 
