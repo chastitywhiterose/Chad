@@ -367,11 +367,9 @@ need Chad out of the picture, and he started forming a plan. But first,
 he needed to find a weakness in Chad that he could exploit to bring him
 down, just like political candidates do to their opponents.
 
-Luke remembered that there was a town newspaper that everyone read. He
-decided to see Gabby at the office of the Podunk Times.
+Luke remembered that there was a town newspaper that everyone read. He decided to see Gabby at the office of the Podunk Times.
 
-Luke: Hello Gabby, can you tell me more about the newspaper and what you
-do?
+Luke: Hello Gabby, can you tell me more about the newspaper and what you do?
 
 Gabby: Sure, Luke. People in the town tell me stories they have of
 events going on, such as sports games or local politics.
@@ -382,9 +380,7 @@ Can I buy any back issues that mention Chad, the soccer team captain?
 Gabby: Every issue's sports section has stuff on Chad! He is a champion who wins at soccer, basketball, tennis, and even volleyball.
 
 Luke: I know Gabby! He is a legend, but the question remains: why is he
-so successful? What are his secrets? Yeah, he is skilled and talented, but
-there must be something about his training methods or diet that leads
-him to victory.
+so successful? What are his secrets? Yeah, he is skilled and talented, but there must be something about his training methods or diet that leads him to victory.
 
 Gabby: You have a point! I should really interview him and ask him! In the meantime, take a look at the archives on the wall over there and see
 If you find anything relevant.
@@ -813,26 +809,44 @@ So I believe that we should follow the new testament whenever there is a conflic
 
 "Somehow, that makes a lot of sense. Thanks, Stacy. I think I know what I need to do about Luke and the kids."
 
-# Chapter 11: The Christmas Story
+# Chapter 11: The New Chad and the New Testament
 
-"What are you going to do about soccer Sundays and the Bible stories for the kids." said Stacy.
+"What are you going to do about soccer Sundays and the Bible stories for the kids?" said Stacy.
 
-"I have an idea, but I need your help. I also want you to be there next time and bring your dad, pastor Mark. I will also make sure that Matt and John are there." said Chad.
+"I have an idea, but I need your help. I also want you to be there next time and bring your dad, pastor Mark. I will also make sure that Matt and John are there," said Chad.
 
-"OK I can do it, but why does my dad have to be there?" said Stacy.
+"OK, I can do it, but why does my dad have to be there?" said Stacy.
 
-"Because he is the pastor and it should be his job to care if people are learning about Jesus and what it means to be a Christian. I would like him to step in sometimes, especially when kids have difficult questions. Regardless, I will answer every question they ask of me and I would like you to also do the same." said Chad.
+"Because he is the pastor, and it should be his job to care if people are learning about Jesus and what it means to be a Christian. I would like him to step in sometimes, especially when kids have difficult questions. Regardless, I will answer every question they ask of me, and I would like you to do the same," said Chad.
 
-"OK I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
+"OK, I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
 
-"Yes, bring your favorite vegan food and the King James Version Bible your father gave you." said Chad.
+"Yes, bring your favorite vegan food and the King James Version Bible your father gave you," said Chad.
 
-"You know I can't read that confusing Bible, Chad." said Stacy.
+"You know I can't read that confusing Bible, Chad," said Stacy.
 
-"Don't worry, I will make Luke read it this time as his punishment for scaring the kids with old testament horror stories." said Chad.
+"Don't worry, I will make Luke read it this time as his punishment for scaring the kids with Old Testament horror stories," said Chad.
 
-"That is a plan I can get behind. I will see you Sunday afternoon." said Stacy.
+"That is a plan I can get behind. I will see you Sunday afternoon," said Stacy.
 
-"Sure thing, Stacy. Thanks to you and your butterfly I am a new man!" said Chad.
+"Sure thing, Stacy. Thanks to you and your butterfly, I am a new man!" said Chad as he left the library.
 
-After leaving the library, 
+"I liked the old Chad, but this Chad is kinda hot," said Stacy.
+
+After leaving the library, Chad stopped by the Podunk Times office to talk to Gabby and ask her to announce the Soccer Sundays event in the newspaper.
+
+"Hi Chad, what brings you in today?" said Gabby.
+
+"After your previous article, people flocked to the animal shelter and adopted almost all the animals. I need you to make an announcement about the regular Soccer Sundays that we do with kids after church. We play soccer with them and tell them Bible stories," said Chad.
+
+"OK, I can do that! Luke had mentioned it to me, but I didn't really know how it was going. Is there anything special the announcement should include?" said Gabby.
+
+"Yes, we will read the Christmas story from the beginning of Matthew. The plan is to go over the entire life of Jesus. Why not start with the story of when he was born?" said Chad.
+
+"I will write it up, Chad. But why now in July? Wouldn't December be better since it is the Christmas season?" said Gabby.
+
+"No, it will be too cold then, and kids will need to stay inside. This coming Sunday is the perfect time to start, but by the time I am done sharing the whole book of Matthew with these kids, it probably will be December!
+
+After that, Chad went and talked to Matthew and John. He had invited them before, but they were too busy and hadn't joined the events after church with Luke and Chad. However, Chad said their presence was needed and even offered to pay them. They both refused the money but decided to do it as a favor for their friend Chad because it seemed important to him. Chad spent the next few days reading over the first two chapters of the book of Matthew. This would be a difficult story to explain, and he remembered all the Christmas plays growing up that skipped the genealogy in chapter 1. Chad pondered over whether it was important, but he also wanted to leave nothing out. He also was not going to leave the children's questions without an answer.
+
+# Chapter 12: The Christmas Story
