@@ -850,3 +850,135 @@ After leaving the library, Chad stopped by the Podunk Times office to talk to Ga
 After that, Chad went and talked to Matthew and John. He had invited them before, but they were too busy and hadn't joined the events after church with Luke and Chad. However, Chad said their presence was needed and even offered to pay them. They both refused the money but decided to do it as a favor for their friend Chad because it seemed important to him. Chad spent the next few days reading over the first two chapters of the book of Matthew. This would be a difficult story to explain, and he remembered all the Christmas plays growing up that skipped the genealogy in chapter 1. Chad pondered over whether it was important, but he also wanted to leave nothing out. He also was not going to leave the children's questions without an answer.
 
 # Chapter 12: The Christmas Story
+
+Chad came prepared on Sunday with his NET Bible and a determination to teach the kids what he learned from reading the Bible. He had always been a Christian, but he had never fully understood it all. He still had many questions but knew he would figure them out in time and hoped the children would understand what he was going to do from this day onward.
+
+Everyone he invited was there. Even Matthew, who had previously declined to go to church or join the soccer and Bible lessons in the afternoon. Many parents were also there with their kids despite generally not being present and dropping their kids off at all the previous soccer Sundays.
+
+“Why have you told everyone to be here today?” said Pastor Mark.
+
+“I have a special announcement to make today and two Bible stories to tell everyone. It is very important.”, said Chad.
+
+"Okay, I am curious, but why didn't you run this by me first? Also, this better be good or a lot of parents will be cranky."
+
+"Sorry Mark, but nothing is more important to me than the eternal soul of these Children and I want to contribute my part in that. Nothing is more important to me right now," said Chad.
+
+"Matthew, Luke, and John, I have reading assignments for you from the books of the Bible based on your names. Matt, you will read the first chapter of Matthew from the NET Bible; Luke, you will read chapter 1 of the book of Luke from the King James Bible, but start at verse 26 because it is about the conception and birth of Jesus, just as the first chapter of Matthew is. John, I will have you read the first 18 verses of John chapter 1. You can share either the NET Bible with Matthew or the KJV with Luke. I only have two Bibles on hand. Any questions?" said Chad.
+
+"Yeah, why did you want me to read from the King James Bible while Matthew and John read from the NET Bible?" said Luke.
+
+"Because I want to show people how the different translations are similar and different. The Bible version is not too important, and you can read from the NET Bible or another version you prefer if you can't understand the King James," said Chad.
+
+"I am not stupid, Chad. I can read the KJV, but who put you in charge anyway?" said Luke.
+
+"You did, Luke. The Soccer Sunday with food and Bible stories was your idea. I am just taking it seriously and getting more to the point of what Christianity should be about. Understanding the life of Jesus is what we as Christians should be concerned with. Why not start at the beginning of the story with his conception and birth?" said Chad.
+
+"Okay, I can accept that. I'll play along since this was my idea in the first place and I am curious where this is going," said Luke.
+
+"Chad, is there anything you need me to do?" asked Stacy.
+
+"Yes, thanks for asking. I have two coolers full of watermelons in my car. Here are the keys. John and Matt, help Stacy bring them out and cut the watermelon into slices to feed the kids and their parents. It is a hot day, and some cold watermelon is what we will need out here," said Chad.
+
+Chad then called his dog, Gold General, over and asked him to howl and get everyone's attention. The dog made a sound so loud that everyone stopped talking and stopped to listen.
+
+"Listen, everybody, I am Chad, and I have invited everyone here for 3 main reasons. First, I want to apologize to the children because I realize I am guilty of a great hypocrisy. I have been choosing only the Bible stories that I preferred, and I lost sight of what should matter for Christians. This is the start of a new series of Bible reading focusing on the life of Jesus from the gospels in the New Testament," said Chad.
+
+"I have asked my friends to read parts of the books Matthew, Luke, and John. We will cover the life of Jesus, starting from the Christmas story until his death and resurrection. Listen children, if at any time you have questions or something just doesn't make sense, please raise your hand and I will answer every question the best I can. Pastor Mark and your parents can probably help you with questions I don't know the answer to. Luke, please begin with your part while the the others get the food ready," said Chad.
+
+Luke read aloud the verses that Chad asked him to.
+
+## Luke 1:26-38 from KJV Bible
+
+---
+
+Luke 1:26 And in the sixth month the angel Gabriel was sent from God unto a city of Galilee, named Nazareth,
+
+27 To a virgin espoused to a man whose name was Joseph, of the house of David; and the virgin's name was Mary.
+
+28 And the angel came in unto her, and said , Hail , thou that art highly favoured , the Lord is with thee: blessed art thou among women.
+
+29 And when she saw him, she was troubled at his saying, and cast in her mind what manner of salutation this should be .
+
+30 And the angel said unto her, Fear not, Mary: for thou hast found favour with God.
+
+31 And, behold , thou shalt conceive in thy womb, and bring forth a son, and shalt call his name JESUS.
+
+32 He shall be great, and shall be called the Son of the Highest: and the Lord God shall give unto him the throne of his father David:
+
+33 And he shall reign over the house of Jacob for ever; and of his kingdom there shall be no end.
+
+34 Then said Mary unto the angel, How shall this be , seeing I know not a man?
+
+35 And the angel answered and said unto her, The Holy Ghost shall come upon thee, and the power of the Highest shall overshadow thee: therefore also that holy thing which shall be born of thee shall be called the Son of God.
+
+36 And, behold , thy cousin Elisabeth, she hath also conceived a son in her old age: and this is the sixth month with her, who was called barren.
+
+37 For with God nothing shall be impossible .
+
+38 And Mary said , Behold the handmaid of the Lord; be it unto me according to thy word. And the angel departed from her.
+
+39 And Mary arose in those days, and went into the hill country with haste, into a city of Juda;
+
+40 And entered into the house of Zacharias, and saluted Elisabeth.
+
+41 And it came to pass , that, when Elisabeth heard the salutation of Mary, the babe leaped in her womb; and Elisabeth was filled with the Holy Ghost:
+
+42 And she spake out with a loud voice, and said , Blessed art thou among women, and blessed is the fruit of thy womb.
+
+43 And whence is this to me, that the mother of my Lord should come to me?
+
+---
+
+Before Luke had finished reading, the young boy Trevor raised his hand.
+
+"Yes!, Trevor what is your question?".  said Chad.
+
+"What is a virgin?", asked Trevor?
+
+"A virgin is someone who has never had sex before", said Chad.
+
+"What is sex?" asked Trevor.
+
+"It is something you will learn about in health class in a few years or perhaps ask your parents about at home."
+
+"But don't you know? Can you explain it in a way I can understand?" asked Trevor.
+
+"Sadly, I cannot. I am a virgin. I only know that sex is something that people usually do after they are married and that it is how most babies come into the world. However, Jesus was not born this way. He was the one and only baby known to be born from a virgin, his mother Mary."
+
+"Chad, this conversation is highly inappropriate. You can't talk to kids about sex. What will the parents think?" said Pastor Mark.
+
+"Pastor, I must disagree. The Christmas story naturally requires us to ponder why Jesus was conceived from a woman who had not had sex with a man, as way referenced in verse 34 when Mary said ***"How shall this be , seeing I know not a man?"***. You may not want the children to know about sex, but it is clear that Jesus' mother Mary knew that it was not normal to get pregnant with a child if she had not had sex yet."
+
+Before pastor Mark could respond, a young girl also had a question
+
+## Matthew Chapter 1 from NET Bible
+
+---
+
+The Genealogy of Jesus Christ
+1 This is the record of the genealogy of Jesus Christ, the son of David, the son of Abraham.
+
+2 Abraham was the father of Isaac, Isaac the father of Jacob, Jacob the father of Judah and his brothers, 3 Judah the father of Perez and Zerah (by Tamar), Perez the father of Hezron, Hezron the father of Ram, 4 Ram the father of Amminadab, Amminadab the father of Nahshon, Nahshon the father of Salmon, 5 Salmon the father of Boaz (by Rahab), Boaz the father of Obed (by Ruth), Obed the father of Jesse, 6 and Jesse the father of David the king.
+
+David was the father of Solomon (by the wife of Uriah), 7 Solomon the father of Rehoboam, Rehoboam the father of Abijah, Abijah the father of Asa, 8 Asa the father of Jehoshaphat, Jehoshaphat the father of Joram, Joram the father of Uzziah, 9 Uzziah the father of Jotham, Jotham the father of Ahaz, Ahaz the father of Hezekiah, 10 Hezekiah the father of Manasseh, Manasseh the father of Amon, Amon the father of Josiah, 11 and Josiah the father of Jeconiah and his brothers, at the time of the deportation to Babylon.
+
+12 After the deportation to Babylon, Jeconiah became the father of Shealtiel, Shealtiel the father of Zerubbabel, 13 Zerubbabel the father of Abiud, Abiud the father of Eliakim, Eliakim the father of Azor, 14 Azor the father of Zadok, Zadok the father of Achim, Achim the father of Eliud, 15 Eliud the father of Eleazar, Eleazar the father of Matthan, Matthan the father of Jacob, 16 and Jacob the father of Joseph, the husband of Mary, by whom Jesus was born, who is called Christ.
+
+17 So all the generations from Abraham to David are fourteen generations, and from David to the deportation to Babylon, fourteen generations, and from the deportation to Babylon to Christ, fourteen generations.
+
+The Birth of Jesus Christ
+18 Now the birth of Jesus Christ happened this way. While his mother Mary was engaged to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. 19 Because Joseph, her husband to be, was a righteous man, and because he did not want to disgrace her, he intended to divorce her privately. 20 When he had contemplated this, an angel of the Lord appeared to him in a dream and said, “Joseph, son of David, do not be afraid to take Mary as your wife because the child conceived in her is from the Holy Spirit. 21 She will give birth to a son and you will name him Jesus because he will save his people from their sins.” 22 This all happened so that what was spoken by the Lord through the prophet would be fulfilled: 23 “Look! The virgin will conceive and give birth to a son, and they will name him Emmanuel,” which means “God with us.” 24 When Joseph awoke from sleep he did what the angel of the Lord told him. He took his wife, 25 but did not have marital relations with her until she gave birth to a son, whom he named Jesus.
+
+---
+
+## John 1:1-18 from NET Bible
+
+---
+
+1 In the beginning was the Word, and the Word was with God, and the Word was fully God. 2 The Word was with God in the beginning. 3 All things were created by him, and apart from him not one thing was created that has been created. 4 In him was life, and the life was the light of mankind. 5 And the light shines on in the darkness, but the darkness has not mastered it.
+
+6 A man came, sent from God, whose name was John. 7 He came as a witness to testify about the light, so that everyone might believe through him. 8 He himself was not the light, but he came to testify about the light. 9 The true light, who gives light to everyone, was coming into the world. 10 He was in the world, and the world was created by him, but the world did not recognize him. 11 He came to what was his own, but his own people did not receive him. 12 But to all who have received him—those who believe in his name—he has given the right to become God’s children— 13 children not born by human parents or by human desire or a husband’s decision, but by God.
+
+14 Now the Word became flesh and took up residence among us. We saw his glory—the glory of the one and only, full of grace and truth, who came from the Father. 15 John testified about him and shouted out, “This one was the one about whom I said, ‘He who comes after me is greater than I am, because he existed before me.’” 16 For we have all received from his fullness one gracious gift after another. 17 For the law was given through Moses, but grace and truth came about through Jesus Christ. 18 No one has ever seen God. The only one, himself God, who is in closest fellowship with the Father, has made God known.
+
+---
