@@ -861,7 +861,7 @@ Everyone he invited was there. Even Matthew, who had previously declined to go t
 
 "Okay, I am curious, but why didn't you run this by me first? Also, this better be good or a lot of parents will be cranky."
 
-"Sorry Mark, but nothing is more important to me than the eternal soul of these Children and I want to contribute my part in that. Nothing is more important to me right now," said Chad.
+"Sorry, Mark, but nothing is more important to me than the eternal soul of these Children and I want to contribute my part in that. Nothing is more important to me right now," said Chad.
 
 "Matthew, Luke, and John, I have reading assignments for you from the books of the Bible based on your names. Matt, you will read the first chapter of Matthew from the NET Bible; Luke, you will read chapter 1 of the book of Luke from the King James Bible, but start at verse 26 because it is about the conception and birth of Jesus, just as the first chapter of Matthew is. John, I will have you read the first 18 verses of John chapter 1. You can share either the NET Bible with Matthew or the KJV with Luke. I only have two Bibles on hand. Any questions?" said Chad.
 
@@ -883,7 +883,7 @@ Chad then called his dog, Gold General, over and asked him to howl and get every
 
 "Listen, everybody, I am Chad, and I have invited everyone here for 3 main reasons. First, I want to apologize to the children because I realize I am guilty of a great hypocrisy. I have been choosing only the Bible stories that I preferred, and I lost sight of what should matter for Christians. This is the start of a new series of Bible reading focusing on the life of Jesus from the gospels in the New Testament," said Chad.
 
-"I have asked my friends to read parts of the books Matthew, Luke, and John. We will cover the life of Jesus, starting from the Christmas story until his death and resurrection. Listen children, if at any time you have questions or something just doesn't make sense, please raise your hand and I will answer every question the best I can. Pastor Mark and your parents can probably help you with questions I don't know the answer to. Luke, please begin with your part while the the others get the food ready," said Chad.
+"I have asked my friends to read parts of the books Matthew, Luke, and John. We will cover the life of Jesus, starting from the Christmas story until his death and resurrection. Listen, children, if at any time you have questions or something just doesn't make sense, please raise your hand, and I will answer every question the best I can. Pastor Mark and your parents can probably help you with questions I don't know the answer to. Luke, please begin with your part while the others get the food ready," said Chad.
 
 Luke read aloud the verses that Chad asked him to.
 
@@ -931,9 +931,9 @@ Luke 1:26 And in the sixth month the angel Gabriel was sent from God unto a city
 
 Before Luke had finished reading, the young boy Trevor raised his hand.
 
-"Yes!, Trevor what is your question?".  said Chad.
+"Yes! Trevor, what is your question?" said Chad.
 
-"What is a virgin?", asked Trevor?
+"What is a virgin?" asked Trevor.
 
 "A virgin is someone who has never had sex before", said Chad.
 
@@ -947,9 +947,23 @@ Before Luke had finished reading, the young boy Trevor raised his hand.
 
 "Chad, this conversation is highly inappropriate. You can't talk to kids about sex. What will the parents think?" said Pastor Mark.
 
-"Pastor, I must disagree. The Christmas story naturally requires us to ponder why Jesus was conceived from a woman who had not had sex with a man, as way referenced in verse 34 when Mary said ***"How shall this be , seeing I know not a man?"***. You may not want the children to know about sex, but it is clear that Jesus' mother Mary knew that it was not normal to get pregnant with a child if she had not had sex yet."
+"Pastor, I must disagree. The Christmas story naturally requires us to ponder why Jesus was conceived from a woman who had not had sex with a man, as was referenced in verse 34 when Mary said, ***"How shall this be, seeing I know not a man?"***. You may not want the children to know about sex, but it is clear that Jesus' mother Mary knew that it was not normal to get pregnant with a child if she had not had sex yet."
 
-Before pastor Mark could respond, a young girl also had a question
+Before pastor Mark could respond, a young girl named Sally also had a question.
+
+"What is the Holy Ghost?" asked Sally.
+
+"Honestly, I don't have a clue. Pastor, can you explain that one?" said Chad.
+
+"The Holy Ghost is one third of the Trinity. God the Father, Jesus, the Son, and the Holy Ghost represent different parts of God," said Pastor Mark.
+
+"But what does the Holy Ghost do and how did it get Mary pregnant?" asked Sally.
+
+"That is a really good question, Sally. I don't know the answer, but I will try to find out. Please remind me later!" said Chad.
+
+At this point, Pastor Mark looked sweaty and nervous. The kids were asking questions that neither he nor Chad were prepared for. Chad was excited about the good questions the kids were asking, but he knew he wasn't qualified to answer these questions yet. He decided it was time for a break before continuing the stories.
+
+"Listen, everyone, we have lots of cold watermelon to cool everyone off before we continue. Then I will have Matthew and John read their parts before more question and answer sessions," said Chad.
 
 ## Matthew Chapter 1 from NET Bible
 
