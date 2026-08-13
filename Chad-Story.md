@@ -879,7 +879,7 @@ Everyone he invited was there. Even Matthew, who had previously declined to go t
 
 "Yes, thanks for asking. I have two coolers full of watermelons in my car. Here are the keys. John and Matt, help Stacy bring them out and cut the watermelon into slices to feed the kids and their parents. It is a hot day, and some cold watermelon is what we will need out here," said Chad.
 
-Chad then called his dog, Gold General, over and asked him to howl and get everyone's attention. The dog made a sound so loud that everyone stopped talking and stopped to listen.
+Chad then called his dog, Gold General, over and asked him to howl and get everyone's attention. The dog made a sound so loud that everyone stopped talking and started to listen.
 
 "Listen, everybody, I am Chad, and I have invited everyone here for 3 main reasons. First, I want to apologize to the children because I realize I am guilty of a great hypocrisy. I have been choosing only the Bible stories that I preferred, and I lost sight of what should matter for Christians. This is the start of a new series of Bible reading focusing on the life of Jesus from the gospels in the New Testament," said Chad.
 
@@ -965,12 +965,27 @@ At this point, Pastor Mark looked sweaty and nervous. The kids were asking quest
 
 "Listen, everyone, we have lots of cold watermelon to cool everyone off before we continue. Then I will have Matthew and John read their parts before more question and answer sessions," said Chad.
 
+# Chapter 13: Spirit is Thicker than Blood
+
+After the children and their parents ate watermelon, Chad wanted to explain the purpose behind the Bible verses he and his friends were sharing.
+
+"In the first chapter of Luke, we discovered that the mother of Jesus was a virgin named Mary. In case anyone is still wondering about the virgin part. It is clear that Mary became pregnant by the power of the holy Spirit instead of through the regular way all of you were created by your parents."
+
+"But how did our parents create us?" asked Simon.
+
+"I wish I could tell you, but if I were to try, your parents would probably get angry at me for telling you something they should have told you themselves already. For now, just keep in mind that you are biologically related to your parents and look like a combination of them because you received half your DNA from your mother and father," said Chad.
+
+"What is a DNA?" asked Sally.
+
+"Honestly, Sally, I ain't got a clue. It is one of those fancy things biologists talk about, but I don't know how it works. But more importantly, I would like Matthew to begin reading from the first chapter of the book of Matthew so we can compare it to the story in Luke.
+
+Matt then began to read from the book of Matthew:
+
 ## Matthew Chapter 1 from NET Bible
 
 ---
 
-The Genealogy of Jesus Christ
-1 This is the record of the genealogy of Jesus Christ, the son of David, the son of Abraham.
+Matthew 1:1 This is the record of the genealogy of Jesus Christ, the son of David, the son of Abraham.
 
 2 Abraham was the father of Isaac, Isaac the father of Jacob, Jacob the father of Judah and his brothers, 3 Judah the father of Perez and Zerah (by Tamar), Perez the father of Hezron, Hezron the father of Ram, 4 Ram the father of Amminadab, Amminadab the father of Nahshon, Nahshon the father of Salmon, 5 Salmon the father of Boaz (by Rahab), Boaz the father of Obed (by Ruth), Obed the father of Jesse, 6 and Jesse the father of David the king.
 
@@ -980,10 +995,50 @@ David was the father of Solomon (by the wife of Uriah), 7 Solomon the father of 
 
 17 So all the generations from Abraham to David are fourteen generations, and from David to the deportation to Babylon, fourteen generations, and from the deportation to Babylon to Christ, fourteen generations.
 
-The Birth of Jesus Christ
 18 Now the birth of Jesus Christ happened this way. While his mother Mary was engaged to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. 19 Because Joseph, her husband to be, was a righteous man, and because he did not want to disgrace her, he intended to divorce her privately. 20 When he had contemplated this, an angel of the Lord appeared to him in a dream and said, “Joseph, son of David, do not be afraid to take Mary as your wife because the child conceived in her is from the Holy Spirit. 21 She will give birth to a son and you will name him Jesus because he will save his people from their sins.” 22 This all happened so that what was spoken by the Lord through the prophet would be fulfilled: 23 “Look! The virgin will conceive and give birth to a son, and they will name him Emmanuel,” which means “God with us.” 24 When Joseph awoke from sleep he did what the angel of the Lord told him. He took his wife, 25 but did not have marital relations with her until she gave birth to a son, whom he named Jesus.
 
 ---
+
+Before Matt had finished reading from chapter 1 of the book of Matthew, some children were so bored they fell asleep.
+
+"This doesn't make any sense! Why should we care who was the father of some guy who was the father of another dude who was the father of some other brother from another mother?" asked Trevor.
+
+"Glad you asked, Trevor! I don't care any more than you do. I don't know the names of my ancestors from thousands of years ago, and I don't care. I am who I am regardless of how I came to this world. Similarly, I don't care about the people mentioned in these verses because who Jesus was had nothing to do with these people. Also, the genealogy was clearly an error because it was the ancestors of Joseph, who was not the biological father of Jesus. God was the father of Jesus, and Mary was his mother. Jesus was conceived by the holy Spirit and not through the bloodline of the 42 generations of ancestors mentioned in the book of Matthew.
+
+"Why were these people included in the book if they don't matter?" asked Trevor.
+
+Whoever was writing these books died thousands of years ago, and so we can't ask them, but if I had to guess, they saw Jesus as being the legal son of Joseph because Mary became his wife, and in those days, women were seen more as property than people. You may have noticed that the genealogy lists mostly men and only a few women, despite the fact that every one of them had a mother. The writer probably didn't like women or perhaps excluded them so he didn't have to write so many of those long names," said Chad.
+
+"Come on, Chad, that is just guessing. You have no clue what you are talking about," said Luke.
+
+"Yes, I did say I was guessing, but it doesn't miss the larger point that the Holy Spirit was the reason that Mary became pregnant with Jesus without needing a man. I guess you could say that the Spirit is thicker than blood in this case," said Chad.
+
+At this point, Stacy decided to speak, despite generally being shy in crowds.
+
+"Chad, sorry to interrupt, but I think I understand. The writers tried to frame everything in terms of their culture and ancestry because it was important to them, but it was not important to God. The conception and birth of Jesus completely contradict everything else in the society. Patriarchy and a man's permission were ignored because God sent the angel directly to Mary before Joseph knew anything. It also opposed the genealogy because Jesus was not a biological descendant of Joseph's bloodline," said Stacy.
+
+"Thanks for your input, Stacy! Yes, I do think that the writers tried to include extra things that were not important to understanding the life of Jesus. It is one of the mistakes in the New Testament, but we can still learn a lot from the gospels about who Jesus is and what he taught," said Chad.
+
+"Excuse me, Chad, but did you really say there are mistakes in the Bible?" said Pastor Mark.
+
+"Of course, Mark. All writings have mistakes due to human error and personal or political bias. Seeing which parts are true and which are just the opinions of humans is the hardest part," said Chad.
+
+"But the Bible is the infallible word of God!" I can't let you speak such heresy to these children," said Mark.
+
+"And I won't let you lie to them and say that there are no mistakes in the Bible when clearly there are contradictions between the intentions of the writers and what God was intending to teach people through the life of Jesus," said Chad.
+
+"Chad, you're fired. No one talks back to me. I am the pastor of this church, and I say what happens here," said Mark
+
+## SLAP
+
+Stacy slapped her father hard in the face and interrupted him.
+
+"Shut up, Dad. You think you are the boss, but you are not God, and you are not a man of God either. You care only about your reputation and money rather than whether these kids hear the truth. I think Chad has a point here, and I want the kids to hear it," said Stacy.
+
+"Thanks, Stacy. We are almost done here for today. Pastor, we will talk about this later, but for the record, you can't fire me because I am a volunteer!
+
+Pastor Mark did not say anything else because his daughter, Stacy, might slap him again. She was in a mood today that he had never seen before.
+
 
 ## John 1:1-18 from NET Bible
 
