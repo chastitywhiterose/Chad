@@ -1057,3 +1057,7 @@ After Stacy had slapped Pastor Mark, Chad was concerned. Not about Mark but abou
 14 Now the Word became flesh and took up residence among us. We saw his glory—the glory of the one and only, full of grace and truth, who came from the Father. 15 John testified about him and shouted out, “This one was the one about whom I said, ‘He who comes after me is greater than I am, because he existed before me.’” 16 For we have all received from his fullness one gracious gift after another. 17 For the law was given through Moses, but grace and truth came about through Jesus Christ. 18 No one has ever seen God. The only one, himself God, who is in closest fellowship with the Father, has made God known.
 
 ---
+
+After John had finished reading, Chad explained the reason he chose these verses from the gospels and how they are all connected.
+
+"It may surprise you but I noticed something for the first time in my life as I was reading through the four gospels.
