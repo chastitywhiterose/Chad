@@ -1041,9 +1041,9 @@ Pastor Mark did not say anything else because his daughter, Stacy, might slap hi
 
 # Chapter 14: Word of Man versus God
 
-After Stacy had slapped Pastor Mark, Chad was concerned. Not about Mark but about the kids who had to watch this unfortunate conflict. Nonetheless, he asked his friend John to read the final Bible verses from the book of John.
+After Stacy had slapped Pastor Mark, Chad was concerned, not about Mark but about the kids who had to watch this unfortunate conflict. Nonetheless, he asked his friend John to read the final Bible verses from the book of John.
 
-"We have only one more section from the Bible to read today, and then I will explain the entire purpose of all these verses we have read from Matthew, Luke, and John. John, I'd like you to proceed with John chapter 1 verses 1 to 18," said Chad.
+"We have only one more section from the Bible to read today, and then I will explain the entire purpose of all these verses we have read from Matthew, Luke, and John. John, I'd like you to proceed with John chapter 1, verses 1 to 18," said Chad.
 
 
 ## John 1:1-18 from NET Bible
@@ -1060,4 +1060,14 @@ After Stacy had slapped Pastor Mark, Chad was concerned. Not about Mark but abou
 
 After John had finished reading, Chad explained the reason he chose these verses from the gospels and how they are all connected.
 
-"It may surprise you but I noticed something for the first time in my life as I was reading through the four gospels.
+"It may surprise you, but I noticed something for the first time in my life as I was reading through the four gospels. Although they start at different places in the story of Jesus, they all have a theme about being born differently. Matthew and Luke cover the unusual story of how Jesus was born of the virgin named Mary. The specific issue of Jesus not having a biological father because God was his father instead is most unusual.
+
+Another unusual thing is that John the Baptist's birth was unusual because Zechariah and Elizabeth were old and could not have children for many years. The books of Mark and John don't talk about the birth of Jesus or John but start with what they did as adults. In any case, it is clear that John knew who Jesus was and told everyone to be ready for him. John also knew that Jesus existed before him, even though he was conceived by Elizabeth six months prior to the angel visiting Mary and telling her she was going to be the mother of Jesus.
+
+Someone has to read all four gospels even to get a coherent picture of everything that happened because they start in different places and tell different details. But most importantly, I realized that the Bible is not the Word of God, but that Jesus is the Word who was with God and was also fully God. The Word became flesh, which means Jesus took a human form when he was conceived by his mother Mary after the visit from the angel.
+
+I can see that humans were all trying to write down the story of Jesus from their perspectives. It also appears they made an error when including the genealogy of Jesus because he was not created by human parents but, just as John said, he existed before John the Baptist did and was with God in the beginning of all things before anything was created.
+
+But the most amazing thing to me is that the book of John explains in verses 12 and 13 that we can become children of God by the decision of God, and it doesn't matter who your biological parents were or when they decided to have you.
+
+And I wanted everyone to know that I think it is important for people to read the Bible and understand these stories, not because the Bible is God's Word, but because it covers the life and teachings of Jesus, who is the actual Word of God. I live my life always pondering the question: "What would Jesus do?" and I thought understanding this could be the most important thing I tell you since I was asked to be part of this ministry," said Chad.
