@@ -1035,9 +1035,15 @@ Stacy slapped her father hard in the face and interrupted him.
 
 "Shut up, Dad. You think you are the boss, but you are not God, and you are not a man of God either. You care only about your reputation and money rather than whether these kids hear the truth. I think Chad has a point here, and I want the kids to hear it," said Stacy.
 
-"Thanks, Stacy. We are almost done here for today. Pastor, we will talk about this later, but for the record, you can't fire me because I am a volunteer!
+"Thanks, Stacy. We are almost done here for today. Pastor, we will talk about this later, but for the record, you can't fire me because I am a volunteer!" said Chad.
 
 Pastor Mark did not say anything else because his daughter, Stacy, might slap him again. She was in a mood today that he had never seen before.
+
+# Chapter 14: Word of Man versus God
+
+After Stacy had slapped Pastor Mark, Chad was concerned. Not about Mark but about the kids who had to watch this unfortunate conflict. Nonetheless, he asked his friend John to read the final Bible verses from the book of John.
+
+"We have only one more section from the Bible to read today, and then I will explain the entire purpose of all these verses we have read from Matthew, Luke, and John. John, I'd like you to proceed with John chapter 1 verses 1 to 18," said Chad.
 
 
 ## John 1:1-18 from NET Bible
