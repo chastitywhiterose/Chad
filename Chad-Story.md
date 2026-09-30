@@ -1071,3 +1071,17 @@ I can see that humans were all trying to write down the story of Jesus from thei
 But the most amazing thing to me is that the book of John explains in verses 12 and 13 that we can become children of God by the decision of God, and it doesn't matter who your biological parents were or when they decided to have you.
 
 And I wanted everyone to know that I think it is important for people to read the Bible and understand these stories, not because the Bible is God's Word, but because it covers the life and teachings of Jesus, who is the actual Word of God. I live my life always pondering the question: "What would Jesus do?" and I thought understanding this could be the most important thing I tell you since I was asked to be part of this ministry," said Chad.
+
+Chapter 15: What is Christianity About?
+
+After Chad had finished speaking about what he discovered in the gospels of Matthew, Luke, and John, the children had some questions.
+
+"What does it mean to become one of God's children like what it said in John chapter 1 verses 12 and 13?" asked Simon.
+
+
+
+---
+
+12 But to all who have received him—those who believe in his name—he has given the right to become God’s children— 13 children not born by human parents or by human desire or a husband’s decision, but by God.
+
+---
