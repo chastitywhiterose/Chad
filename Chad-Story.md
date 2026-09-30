@@ -1088,4 +1088,14 @@ After Chad had finished speaking about what he discovered in the gospels of Matt
 
 "But what is being reborn spiritually? What does that even mean?" asked Simon.
 
-"I am not saying I completely understand it.
+"I am not saying I completely understand it. So what I do is look at the example of Matthew 12:46-50 where Jesus said that his family are those people who do the will of his father in heaven. I think this means that those who are doing God's will are the ones that we know are born of the spirit. It also matches with what Jesus said about knowing people by their fruits.
+
+---
+
+Matthew 12:46 While Jesus was still speaking to the crowds, his mother and brothers came and stood outside, asking to speak to him. 47 Someone told him, “Look, your mother and your brothers are standing outside wanting to speak to you.” 48 To the one who had said this, Jesus replied, “Who is my mother and who are my brothers?” 49 And pointing toward his disciples he said, “Here are my mother and my brothers! 50 For whoever does the will of my Father in heaven is my brother and sister and mother.”
+
+---
+
+Matthew 7:15 “Watch out for false prophets, who come to you in sheep’s clothing but inwardly are voracious wolves. 16 You will recognize them by their fruit. Grapes are not gathered from thorns or figs from thistles, are they? 17 In the same way, every good tree bears good fruit, but the bad tree bears bad fruit. 18 A good tree is not able to bear bad fruit, nor a bad tree to bear good fruit. 19 Every tree that does not bear good fruit is cut down and thrown into the fire. 20 So then, you will recognize them by their fruit.
+
+---
