@@ -1078,10 +1078,14 @@ After Chad had finished speaking about what he discovered in the gospels of Matt
 
 "What does it mean to become one of God's children like what it said in John chapter 1 verses 12 and 13?" asked Simon.
 
-
-
 ---
 
 12 But to all who have received him—those who believe in his name—he has given the right to become God’s children— 13 children not born by human parents or by human desire or a husband’s decision, but by God.
 
 ---
+
+"I am glad you asked, Simon! We just got started with the stories of Jesus but I believe there are two good answers to this. In John chapter 3, Jesus told a man named Nicodemus that someone must be born again. Nicodemus thought that he had to enter his mother again and be born physically as a baby, but Jesus corrected him and said he was talking about being reborn in a spiritual sense," said Chad.
+
+"But what is being reborn spiritually? What does that even mean?" asked Simon.
+
+"I am not saying I completely understand it.
