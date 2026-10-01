@@ -6,7 +6,7 @@ push:
 	git add .
 	git commit -m "Chad Update"
 	git push
-Make-Ebook:
+ebook:
 	pandoc Chad-Story.md -o ebook.epub -s --metadata title=$(title) --metadata subtitle=$(subtitle) --metadata author=$(author)
 docx:
 	pandoc Chad-Story.md -o book.docx --reference-doc custom-reference.docx

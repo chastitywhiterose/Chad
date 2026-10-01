@@ -367,11 +367,9 @@ need Chad out of the picture, and he started forming a plan. But first,
 he needed to find a weakness in Chad that he could exploit to bring him
 down, just like political candidates do to their opponents.
 
-Luke remembered that there was a town newspaper that everyone read. He
-decided to see Gabby at the office of the Podunk Times.
+Luke remembered that there was a town newspaper that everyone read. He decided to see Gabby at the office of the Podunk Times.
 
-Luke: Hello Gabby, can you tell me more about the newspaper and what you
-do?
+Luke: Hello Gabby, can you tell me more about the newspaper and what you do?
 
 Gabby: Sure, Luke. People in the town tell me stories they have of
 events going on, such as sports games or local politics.
@@ -382,9 +380,7 @@ Can I buy any back issues that mention Chad, the soccer team captain?
 Gabby: Every issue's sports section has stuff on Chad! He is a champion who wins at soccer, basketball, tennis, and even volleyball.
 
 Luke: I know Gabby! He is a legend, but the question remains: why is he
-so successful? What are his secrets? Yeah, he is skilled and talented, but
-there must be something about his training methods or diet that leads
-him to victory.
+so successful? What are his secrets? Yeah, he is skilled and talented, but there must be something about his training methods or diet that leads him to victory.
 
 Gabby: You have a point! I should really interview him and ask him! In the meantime, take a look at the archives on the wall over there and see
 If you find anything relevant.
@@ -771,7 +767,7 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "Oh, hi Chad. I wanted to find some books with Bible stories for children. I liked the way you explained the story of Daniel and his friends in a language they could understand.", said Stacy.
 
-"That is sort of why I am here too. I need inspiration because I know a lot of stories, but some of them are not relatable to children or can traumatize them. I also haven't seen your for awhile, are you okay?", said Chad.
+"That is sort of why I am here too. I need inspiration because I know a lot of stories, but some of them are not relatable to children or can traumatize them. I also haven't seen you for awhile, are you okay?", said Chad.
 
 "Yeah, I am okay...I guess. I just didn't really want to be on the spot and have the responsibility of children looking up to me as an example when I am really not sure what I am doing with my life.", said Stacy.
 
@@ -803,7 +799,7 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "A butterfly starts as a caterpillar. Everyone expects it just to be what it was born as, but then it surprises everyone when it hides away for awhile and is then reborn as a new creature. It is like becoming a Christian by being born again.", said Stacy.
 
-"I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament as a sign that you became something new?" said Chad.
+"I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament sin as a sign that you became something new?" said Chad.
 
 "Exactly, Chad, 2 Corinthians 5:17 says:
 
@@ -812,3 +808,324 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 So I believe that we should follow the new testament whenever there is a conflict between the old and the new. ", said Stacy.
 
 "Somehow, that makes a lot of sense. Thanks, Stacy. I think I know what I need to do about Luke and the kids."
+
+# Chapter 11: The New Chad and the New Testament
+
+"What are you going to do about soccer Sundays and the Bible stories for the kids?" said Stacy.
+
+"I have an idea, but I need your help. I also want you to be there next time and bring your dad, pastor Mark. I will also make sure that Matt and John are there," said Chad.
+
+"OK, I can do it, but why does my dad have to be there?" said Stacy.
+
+"Because he is the pastor, and it should be his job to care if people are learning about Jesus and what it means to be a Christian. I would like him to step in sometimes, especially when kids have difficult questions. Regardless, I will answer every question they ask of me, and I would like you to do the same," said Chad.
+
+"OK, I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
+
+"Yes, bring your favorite vegan food and the King James Version Bible your father gave you," said Chad.
+
+"You know I can't read that confusing Bible, Chad," said Stacy.
+
+"Don't worry, I will make Luke read it this time as his punishment for scaring the kids with Old Testament horror stories," said Chad.
+
+"That is a plan I can get behind. I will see you Sunday afternoon," said Stacy.
+
+"Sure thing, Stacy. Thanks to you and your butterfly, I am a new man!" said Chad as he left the library.
+
+"I liked the old Chad, but this Chad is kinda hot," said Stacy.
+
+After leaving the library, Chad stopped by the Podunk Times office to talk to Gabby and ask her to announce the Soccer Sundays event in the newspaper.
+
+"Hi Chad, what brings you in today?" said Gabby.
+
+"After your previous article, people flocked to the animal shelter and adopted almost all the animals. I need you to make an announcement about the regular Soccer Sundays that we do with kids after church. We play soccer with them and tell them Bible stories," said Chad.
+
+"OK, I can do that! Luke had mentioned it to me, but I didn't really know how it was going. Is there anything special the announcement should include?" said Gabby.
+
+"Yes, we will read the Christmas story from the beginning of Matthew. The plan is to go over the entire life of Jesus. Why not start with the story of when he was born?" said Chad.
+
+"I will write it up, Chad. But why now in July? Wouldn't December be better since it is the Christmas season?" said Gabby.
+
+"No, it will be too cold then, and kids will need to stay inside. This coming Sunday is the perfect time to start, but by the time I am done sharing the whole book of Matthew with these kids, it probably will be December!
+
+After that, Chad went and talked to Matthew and John. He had invited them before, but they were too busy and hadn't joined the events after church with Luke and Chad. However, Chad said their presence was needed and even offered to pay them. They both refused the money but decided to do it as a favor for their friend Chad because it seemed important to him. Chad spent the next few days reading over the first two chapters of the book of Matthew. This would be a difficult story to explain, and he remembered all the Christmas plays growing up that skipped the genealogy in chapter 1. Chad pondered over whether it was important, but he also wanted to leave nothing out. He also was not going to leave the children's questions without an answer.
+
+# Chapter 12: The Christmas Story
+
+Chad came prepared on Sunday with his NET Bible and a determination to teach the kids what he learned from reading the Bible. He had always been a Christian, but he had never fully understood it all. He still had many questions but knew he would figure them out in time and hoped the children would understand what he was going to do from this day onward.
+
+Everyone he invited was there. Even Matthew, who had previously declined to go to church or join the soccer and Bible lessons in the afternoon. Many parents were also there with their kids despite generally not being present and dropping their kids off at all the previous soccer Sundays.
+
+“Why have you told everyone to be here today?” said Pastor Mark.
+
+“I have a special announcement to make today and two Bible stories to tell everyone. It is very important.”, said Chad.
+
+"Okay, I am curious, but why didn't you run this by me first? Also, this better be good or a lot of parents will be cranky."
+
+"Sorry, Mark, but nothing is more important to me than the eternal soul of these Children and I want to contribute my part in that. Nothing is more important to me right now," said Chad.
+
+"Matthew, Luke, and John, I have reading assignments for you from the books of the Bible based on your names. Matt, you will read the first chapter of Matthew from the NET Bible; Luke, you will read chapter 1 of the book of Luke from the King James Bible, but start at verse 26 because it is about the conception and birth of Jesus, just as the first chapter of Matthew is. John, I will have you read the first 18 verses of John chapter 1. You can share either the NET Bible with Matthew or the KJV with Luke. I only have two Bibles on hand. Any questions?" said Chad.
+
+"Yeah, why did you want me to read from the King James Bible while Matthew and John read from the NET Bible?" said Luke.
+
+"Because I want to show people how the different translations are similar and different. The Bible version is not too important, and you can read from the NET Bible or another version you prefer if you can't understand the King James," said Chad.
+
+"I am not stupid, Chad. I can read the KJV, but who put you in charge anyway?" said Luke.
+
+"You did, Luke. The Soccer Sunday with food and Bible stories was your idea. I am just taking it seriously and getting more to the point of what Christianity should be about. Understanding the life of Jesus is what we as Christians should be concerned with. Why not start at the beginning of the story with his conception and birth?" said Chad.
+
+"Okay, I can accept that. I'll play along since this was my idea in the first place and I am curious where this is going," said Luke.
+
+"Chad, is there anything you need me to do?" asked Stacy.
+
+"Yes, thanks for asking. I have two coolers full of watermelons in my car. Here are the keys. John and Matt, help Stacy bring them out and cut the watermelon into slices to feed the kids and their parents. It is a hot day, and some cold watermelon is what we will need out here," said Chad.
+
+Chad then called his dog, Gold General, over and asked him to howl and get everyone's attention. The dog made a sound so loud that everyone stopped talking and started to listen.
+
+"Listen, everybody, I am Chad, and I have invited everyone here for 3 main reasons. First, I want to apologize to the children because I realize I am guilty of a great hypocrisy. I have been choosing only the Bible stories that I preferred, and I lost sight of what should matter for Christians. This is the start of a new series of Bible reading focusing on the life of Jesus from the gospels in the New Testament," said Chad.
+
+"I have asked my friends to read parts of the books Matthew, Luke, and John. We will cover the life of Jesus, starting from the Christmas story until his death and resurrection. Listen, children, if at any time you have questions or something just doesn't make sense, please raise your hand, and I will answer every question the best I can. Pastor Mark and your parents can probably help you with questions I don't know the answer to. Luke, please begin with your part while the others get the food ready," said Chad.
+
+Luke read aloud the verses that Chad asked him to.
+
+## Luke 1:26-38 from KJV Bible
+
+---
+
+Luke 1:26 And in the sixth month the angel Gabriel was sent from God unto a city of Galilee, named Nazareth,
+
+27 To a virgin espoused to a man whose name was Joseph, of the house of David; and the virgin's name was Mary.
+
+28 And the angel came in unto her, and said , Hail , thou that art highly favoured , the Lord is with thee: blessed art thou among women.
+
+29 And when she saw him, she was troubled at his saying, and cast in her mind what manner of salutation this should be .
+
+30 And the angel said unto her, Fear not, Mary: for thou hast found favour with God.
+
+31 And, behold , thou shalt conceive in thy womb, and bring forth a son, and shalt call his name JESUS.
+
+32 He shall be great, and shall be called the Son of the Highest: and the Lord God shall give unto him the throne of his father David:
+
+33 And he shall reign over the house of Jacob for ever; and of his kingdom there shall be no end.
+
+34 Then said Mary unto the angel, How shall this be , seeing I know not a man?
+
+35 And the angel answered and said unto her, The Holy Ghost shall come upon thee, and the power of the Highest shall overshadow thee: therefore also that holy thing which shall be born of thee shall be called the Son of God.
+
+36 And, behold , thy cousin Elisabeth, she hath also conceived a son in her old age: and this is the sixth month with her, who was called barren.
+
+37 For with God nothing shall be impossible .
+
+38 And Mary said , Behold the handmaid of the Lord; be it unto me according to thy word. And the angel departed from her.
+
+39 And Mary arose in those days, and went into the hill country with haste, into a city of Juda;
+
+40 And entered into the house of Zacharias, and saluted Elisabeth.
+
+41 And it came to pass , that, when Elisabeth heard the salutation of Mary, the babe leaped in her womb; and Elisabeth was filled with the Holy Ghost:
+
+42 And she spake out with a loud voice, and said , Blessed art thou among women, and blessed is the fruit of thy womb.
+
+43 And whence is this to me, that the mother of my Lord should come to me?
+
+---
+
+Before Luke had finished reading, the young boy Trevor raised his hand.
+
+"Yes! Trevor, what is your question?" said Chad.
+
+"What is a virgin?" asked Trevor.
+
+"A virgin is someone who has never had sex before", said Chad.
+
+"What is sex?" asked Trevor.
+
+"It is something you will learn about in health class in a few years or perhaps ask your parents about at home."
+
+"But don't you know? Can you explain it in a way I can understand?" asked Trevor.
+
+"Sadly, I cannot. I am a virgin. I only know that sex is something that people usually do after they are married and that it is how most babies come into the world. However, Jesus was not born this way. He was the one and only baby known to be born from a virgin, his mother Mary."
+
+"Chad, this conversation is highly inappropriate. You can't talk to kids about sex. What will the parents think?" said Pastor Mark.
+
+"Pastor, I must disagree. The Christmas story naturally requires us to ponder why Jesus was conceived from a woman who had not had sex with a man, as was referenced in verse 34 when Mary said, ***"How shall this be, seeing I know not a man?"***. You may not want the children to know about sex, but it is clear that Jesus' mother Mary knew that it was not normal to get pregnant with a child if she had not had sex yet."
+
+Before pastor Mark could respond, a young girl named Sally also had a question.
+
+"What is the Holy Ghost?" asked Sally.
+
+"Honestly, I don't have a clue. Pastor, can you explain that one?" said Chad.
+
+"The Holy Ghost is one third of the Trinity. God the Father, Jesus, the Son, and the Holy Ghost represent different parts of God," said Pastor Mark.
+
+"But what does the Holy Ghost do and how did it get Mary pregnant?" asked Sally.
+
+"That is a really good question, Sally. I don't know the answer, but I will try to find out. Please remind me later!" said Chad.
+
+At this point, Pastor Mark looked sweaty and nervous. The kids were asking questions that neither he nor Chad were prepared for. Chad was excited about the good questions the kids were asking, but he knew he wasn't qualified to answer these questions yet. He decided it was time for a break before continuing the stories.
+
+"Listen, everyone, we have lots of cold watermelon to cool everyone off before we continue. Then I will have Matthew and John read their parts before more question and answer sessions," said Chad.
+
+# Chapter 13: Spirit is Thicker than Blood
+
+After the children and their parents ate watermelon, Chad wanted to explain the purpose behind the Bible verses he and his friends were sharing.
+
+"In the first chapter of Luke, we discovered that the mother of Jesus was a virgin named Mary. In case anyone is still wondering about the virgin part. It is clear that Mary became pregnant by the power of the holy Spirit instead of through the regular way all of you were created by your parents."
+
+"But how did our parents create us?" asked Simon.
+
+"I wish I could tell you, but if I were to try, your parents would probably get angry at me for telling you something they should have told you themselves already. For now, just keep in mind that you are biologically related to your parents and look like a combination of them because you received half your DNA from your mother and father," said Chad.
+
+"What is a DNA?" asked Sally.
+
+"Honestly, Sally, I ain't got a clue. It is one of those fancy things biologists talk about, but I don't know how it works. But more importantly, I would like Matthew to begin reading from the first chapter of the book of Matthew so we can compare it to the story in Luke.
+
+Matt then began to read from the book of Matthew:
+
+## Matthew Chapter 1 from NET Bible
+
+---
+
+Matthew 1:1 This is the record of the genealogy of Jesus Christ, the son of David, the son of Abraham.
+
+2 Abraham was the father of Isaac, Isaac the father of Jacob, Jacob the father of Judah and his brothers, 3 Judah the father of Perez and Zerah (by Tamar), Perez the father of Hezron, Hezron the father of Ram, 4 Ram the father of Amminadab, Amminadab the father of Nahshon, Nahshon the father of Salmon, 5 Salmon the father of Boaz (by Rahab), Boaz the father of Obed (by Ruth), Obed the father of Jesse, 6 and Jesse the father of David the king.
+
+David was the father of Solomon (by the wife of Uriah), 7 Solomon the father of Rehoboam, Rehoboam the father of Abijah, Abijah the father of Asa, 8 Asa the father of Jehoshaphat, Jehoshaphat the father of Joram, Joram the father of Uzziah, 9 Uzziah the father of Jotham, Jotham the father of Ahaz, Ahaz the father of Hezekiah, 10 Hezekiah the father of Manasseh, Manasseh the father of Amon, Amon the father of Josiah, 11 and Josiah the father of Jeconiah and his brothers, at the time of the deportation to Babylon.
+
+12 After the deportation to Babylon, Jeconiah became the father of Shealtiel, Shealtiel the father of Zerubbabel, 13 Zerubbabel the father of Abiud, Abiud the father of Eliakim, Eliakim the father of Azor, 14 Azor the father of Zadok, Zadok the father of Achim, Achim the father of Eliud, 15 Eliud the father of Eleazar, Eleazar the father of Matthan, Matthan the father of Jacob, 16 and Jacob the father of Joseph, the husband of Mary, by whom Jesus was born, who is called Christ.
+
+17 So all the generations from Abraham to David are fourteen generations, and from David to the deportation to Babylon, fourteen generations, and from the deportation to Babylon to Christ, fourteen generations.
+
+18 Now the birth of Jesus Christ happened this way. While his mother Mary was engaged to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. 19 Because Joseph, her husband to be, was a righteous man, and because he did not want to disgrace her, he intended to divorce her privately. 20 When he had contemplated this, an angel of the Lord appeared to him in a dream and said, “Joseph, son of David, do not be afraid to take Mary as your wife because the child conceived in her is from the Holy Spirit. 21 She will give birth to a son and you will name him Jesus because he will save his people from their sins.” 22 This all happened so that what was spoken by the Lord through the prophet would be fulfilled: 23 “Look! The virgin will conceive and give birth to a son, and they will name him Emmanuel,” which means “God with us.” 24 When Joseph awoke from sleep he did what the angel of the Lord told him. He took his wife, 25 but did not have marital relations with her until she gave birth to a son, whom he named Jesus.
+
+---
+
+Before Matt had finished reading from chapter 1 of the book of Matthew, some children were so bored they fell asleep.
+
+"This doesn't make any sense! Why should we care who was the father of some guy who was the father of another dude who was the father of some other brother from another mother?" asked Trevor.
+
+"Glad you asked, Trevor! I don't care any more than you do. I don't know the names of my ancestors from thousands of years ago, and I don't care. I am who I am regardless of how I came to this world. Similarly, I don't care about the people mentioned in these verses because who Jesus was had nothing to do with these people. Also, the genealogy was clearly an error because it was the ancestors of Joseph, who was not the biological father of Jesus. God was the father of Jesus, and Mary was his mother. Jesus was conceived by the holy Spirit and not through the bloodline of the 42 generations of ancestors mentioned in the book of Matthew.
+
+"Why were these people included in the book if they don't matter?" asked Trevor.
+
+Whoever was writing these books died thousands of years ago, and so we can't ask them, but if I had to guess, they saw Jesus as being the legal son of Joseph because Mary became his wife, and in those days, women were seen more as property than people. You may have noticed that the genealogy lists mostly men and only a few women, despite the fact that every one of them had a mother. The writer probably didn't like women or perhaps excluded them so he didn't have to write so many of those long names," said Chad.
+
+"Come on, Chad, that is just guessing. You have no clue what you are talking about," said Luke.
+
+"Yes, I did say I was guessing, but it doesn't miss the larger point that the Holy Spirit was the reason that Mary became pregnant with Jesus without needing a man. I guess you could say that the Spirit is thicker than blood in this case," said Chad.
+
+At this point, Stacy decided to speak, despite generally being shy in crowds.
+
+"Chad, sorry to interrupt, but I think I understand. The writers tried to frame everything in terms of their culture and ancestry because it was important to them, but it was not important to God. The conception and birth of Jesus completely contradict everything else in the society. Patriarchy and a man's permission were ignored because God sent the angel directly to Mary before Joseph knew anything. It also opposed the genealogy because Jesus was not a biological descendant of Joseph's bloodline," said Stacy.
+
+"Thanks for your input, Stacy! Yes, I do think that the writers tried to include extra things that were not important to understanding the life of Jesus. It is one of the mistakes in the New Testament, but we can still learn a lot from the gospels about who Jesus is and what he taught," said Chad.
+
+"Excuse me, Chad, but did you really say there are mistakes in the Bible?" said Pastor Mark.
+
+"Of course, Mark. All writings have mistakes due to human error and personal or political bias. Seeing which parts are true and which are just the opinions of humans is the hardest part," said Chad.
+
+"But the Bible is the infallible word of God!" I can't let you speak such heresy to these children," said Mark.
+
+"And I won't let you lie to them and say that there are no mistakes in the Bible when clearly there are contradictions between the intentions of the writers and what God was intending to teach people through the life of Jesus," said Chad.
+
+"Chad, you're fired. No one talks back to me. I am the pastor of this church, and I say what happens here," said Mark
+
+## SLAP
+
+Stacy slapped her father hard in the face and interrupted him.
+
+"Shut up, Dad. You think you are the boss, but you are not God, and you are not a man of God either. You care only about your reputation and money rather than whether these kids hear the truth. I think Chad has a point here, and I want the kids to hear it," said Stacy.
+
+"Thanks, Stacy. We are almost done here for today. Pastor, we will talk about this later, but for the record, you can't fire me because I am a volunteer!" said Chad.
+
+Pastor Mark did not say anything else because his daughter, Stacy, might slap him again. She was in a mood today that he had never seen before.
+
+# Chapter 14: Word of Man versus God
+
+After Stacy had slapped Pastor Mark, Chad was concerned, not about Mark but about the kids who had to watch this unfortunate conflict. Nonetheless, he asked his friend John to read the final Bible verses from the book of John.
+
+"We have only one more section from the Bible to read today, and then I will explain the entire purpose of all these verses we have read from Matthew, Luke, and John. John, I'd like you to proceed with John chapter 1, verses 1 to 18," said Chad.
+
+
+## John 1:1-18 from NET Bible
+
+---
+
+1 In the beginning was the Word, and the Word was with God, and the Word was fully God. 2 The Word was with God in the beginning. 3 All things were created by him, and apart from him not one thing was created that has been created. 4 In him was life, and the life was the light of mankind. 5 And the light shines on in the darkness, but the darkness has not mastered it.
+
+6 A man came, sent from God, whose name was John. 7 He came as a witness to testify about the light, so that everyone might believe through him. 8 He himself was not the light, but he came to testify about the light. 9 The true light, who gives light to everyone, was coming into the world. 10 He was in the world, and the world was created by him, but the world did not recognize him. 11 He came to what was his own, but his own people did not receive him. 12 But to all who have received him—those who believe in his name—he has given the right to become God’s children— 13 children not born by human parents or by human desire or a husband’s decision, but by God.
+
+14 Now the Word became flesh and took up residence among us. We saw his glory—the glory of the one and only, full of grace and truth, who came from the Father. 15 John testified about him and shouted out, “This one was the one about whom I said, ‘He who comes after me is greater than I am, because he existed before me.’” 16 For we have all received from his fullness one gracious gift after another. 17 For the law was given through Moses, but grace and truth came about through Jesus Christ. 18 No one has ever seen God. The only one, himself God, who is in closest fellowship with the Father, has made God known.
+
+---
+
+After John had finished reading, Chad explained the reason he chose these verses from the gospels and how they are all connected.
+
+"It may surprise you, but I noticed something for the first time in my life as I was reading through the four gospels. Although they start at different places in the story of Jesus, they all have a theme about being born differently. Matthew and Luke cover the unusual story of how Jesus was born of the virgin named Mary. The specific issue of Jesus not having a biological father because God was his father instead is most unusual.
+
+Another unusual thing is that John the Baptist's birth was unusual because Zechariah and Elizabeth were old and could not have children for many years. The books of Mark and John don't talk about the birth of Jesus or John but start with what they did as adults. In any case, it is clear that John knew who Jesus was and told everyone to be ready for him. John also knew that Jesus existed before him, even though he was conceived by Elizabeth six months prior to the angel visiting Mary and telling her she was going to be the mother of Jesus.
+
+Someone has to read all four gospels even to get a coherent picture of everything that happened because they start in different places and tell different details. But most importantly, I realized that the Bible is not the Word of God, but that Jesus is the Word who was with God and was also fully God. The Word became flesh, which means Jesus took a human form when he was conceived by his mother Mary after the visit from the angel.
+
+I can see that humans were all trying to write down the story of Jesus from their perspectives. It also appears they made an error when including the genealogy of Jesus because he was not created by human parents but, just as John said, he existed before John the Baptist did and was with God in the beginning of all things before anything was created.
+
+But the most amazing thing to me is that the book of John explains in verses 12 and 13 that we can become children of God by the decision of God, and it doesn't matter who your biological parents were or when they decided to have you.
+
+And I wanted everyone to know that I think it is important for people to read the Bible and understand these stories, not because the Bible is God's Word, but because it covers the life and teachings of Jesus, who is the actual Word of God. I live my life always pondering the question: "What would Jesus do?" and I thought understanding this could be the most important thing I tell you since I was asked to be part of this ministry," said Chad.
+
+# Chapter 15: What is Christianity About?
+
+After Chad had finished speaking about what he discovered in the gospels of Matthew, Luke, and John, the children had some questions.
+
+"What does it mean to become one of God's children, like what it said in John chapter 1, verses 12 and 13?" asked Simon.
+
+---
+
+12 But to all who have received him—those who believe in his name—he has given the right to become God’s children— 13 children not born by human parents or by human desire or a husband’s decision, but by God.
+
+---
+
+"I am glad you asked, Simon! We just got started with the stories of Jesus, but I believe there are two good answers to this. In John chapter 3, Jesus told a man named Nicodemus that someone must be born again. Nicodemus thought that he had to enter his mother again and be born physically as a baby, but Jesus corrected him and said he was talking about being reborn in a spiritual sense," said Chad.
+
+"But what is being reborn spiritually? What does that even mean?" asked Simon.
+
+"I am not even saying I completely understand it. So what I do is look at the example of Matthew 12:46-50, where Jesus said that his family is those people who do the will of his father in heaven. I think this means that those who are doing God's will are the ones that we know are born of the spirit. It also matches with what Jesus said about knowing people by their fruits.
+
+---
+
+Matthew 12:46 While Jesus was still speaking to the crowds, his mother and brothers came and stood outside, asking to speak to him. 47 Someone told him, “Look, your mother and your brothers are standing outside wanting to speak to you.” 48 To the one who had said this, Jesus replied, “Who is my mother and who are my brothers?” 49 And pointing toward his disciples he said, “Here are my mother and my brothers! 50 For whoever does the will of my father in heaven is my brother and sister and mother.”
+
+---
+
+Matthew 7:15 “Watch out for false prophets, who come to you in sheep’s clothing but inwardly are voracious wolves. 16 You will recognize them by their fruit. Grapes are not gathered from thorns or figs from thistles, are they? 17 In the same way, every good tree bears good fruit, but the bad tree bears bad fruit. 18 A good tree is not able to bear bad fruit, nor a bad tree to bear good fruit. 19 Every tree that does not bear good fruit is cut down and thrown into the fire. 20 So then, you will recognize them by their fruit.
+
+---
+
+"Thanks, Chad, that makes sense," said Simon.
+
+"You're welcome, Simon, your questions are always good. We will cover that in detail later because we are just getting started with the life and teachings of Jesus. This is only the beginning. I hope that the children and their parents will join me on this journey as we learn about Jesus and discover what it means to be a Christian.
+
+"That won't be necessary, Chad, we already know what it means to be a Christian. We believe that Jesus is God and that he died on the cross for our sins and then resurrected. We believe in him, but we don't need to understand his life or teachings," said Luke.
+
+"I must disagree, Luke. I don't think Jesus would have spent so much time walking around, teaching, and performing miracles if he wasn't doing something important. I believe that someone must look at what Jesus did to know who he was. Only when they know who he really was can they believe in him as the son of God. Just believing that he was a dude that existed is not the same as truly believing in Jesus or being born again of the spirit," said Chad.
+
+"Then how come I have gone to church all my life and never heard any of this?" said Luke.
+
+"Because pastor Mark gives vague sermons about moral living and other parts of the Bible rather than focusing on Jesus," said Chad.
+
+"Now wait a minute, Chad, I use the Bible for all my sermons," said Pastor Mark.
+
+"Yes, you do, Mark, but after you mention Bible references, you usually go off on tangents that have nothing to do with the verses. Also, you bring up the Old Testament a lot, and so people like Luke only hear about an angry God of judgment, which is quite unlike the behavior of Jesus in the New Testament," said Chad.
+
+"It is important to remember that God is not just a loving God but a just God who will punish the wicked for their transgressions!" said Mark.
+
+"Mark, I have a question for you. If God wanted to punish people for their sins, then why would he have come in the flesh and died to save them from their sins?"
+
+"I don't really know. That is a good question," said Mark.
+
+"I would like to remind everyone that the children here listening haven't lived long enough or read everything even to know what we are talking about. We need to take things slow and first focus on Jesus and God's love before we get into the details of ancient things in the Old Testament or the opinions of the writers of the later New Testament books. The gospels are the best sources we have to learn who Jesus is by what he did," said Chad.
+
+"Yes, that's right, and the adults can argue about these things another time, but for now we should teach the children about Jesus", said Stacy.
+
+Pastor Mark and Luke had nothing more to say that day. They knew Chad was right and neither wanted to disagree with Chad in front of a crowd, especially when a shy girl like Stacy seemed to support what he was doing.
+
+Chad spent the rest of the day talking to the children and their parents. Everyone seemed to have a good time except for Pastor Mark and Luke.
