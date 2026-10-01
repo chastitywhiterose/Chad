@@ -1072,11 +1072,11 @@ But the most amazing thing to me is that the book of John explains in verses 12 
 
 And I wanted everyone to know that I think it is important for people to read the Bible and understand these stories, not because the Bible is God's Word, but because it covers the life and teachings of Jesus, who is the actual Word of God. I live my life always pondering the question: "What would Jesus do?" and I thought understanding this could be the most important thing I tell you since I was asked to be part of this ministry," said Chad.
 
-Chapter 15: What is Christianity About?
+# Chapter 15: What is Christianity About?
 
 After Chad had finished speaking about what he discovered in the gospels of Matthew, Luke, and John, the children had some questions.
 
-"What does it mean to become one of God's children like what it said in John chapter 1 verses 12 and 13?" asked Simon.
+"What does it mean to become one of God's children, like what it said in John chapter 1, verses 12 and 13?" asked Simon.
 
 ---
 
@@ -1084,18 +1084,48 @@ After Chad had finished speaking about what he discovered in the gospels of Matt
 
 ---
 
-"I am glad you asked, Simon! We just got started with the stories of Jesus but I believe there are two good answers to this. In John chapter 3, Jesus told a man named Nicodemus that someone must be born again. Nicodemus thought that he had to enter his mother again and be born physically as a baby, but Jesus corrected him and said he was talking about being reborn in a spiritual sense," said Chad.
+"I am glad you asked, Simon! We just got started with the stories of Jesus, but I believe there are two good answers to this. In John chapter 3, Jesus told a man named Nicodemus that someone must be born again. Nicodemus thought that he had to enter his mother again and be born physically as a baby, but Jesus corrected him and said he was talking about being reborn in a spiritual sense," said Chad.
 
 "But what is being reborn spiritually? What does that even mean?" asked Simon.
 
-"I am not saying I completely understand it. So what I do is look at the example of Matthew 12:46-50 where Jesus said that his family are those people who do the will of his father in heaven. I think this means that those who are doing God's will are the ones that we know are born of the spirit. It also matches with what Jesus said about knowing people by their fruits.
+"I am not even saying I completely understand it. So what I do is look at the example of Matthew 12:46-50, where Jesus said that his family is those people who do the will of his father in heaven. I think this means that those who are doing God's will are the ones that we know are born of the spirit. It also matches with what Jesus said about knowing people by their fruits.
 
 ---
 
-Matthew 12:46 While Jesus was still speaking to the crowds, his mother and brothers came and stood outside, asking to speak to him. 47 Someone told him, “Look, your mother and your brothers are standing outside wanting to speak to you.” 48 To the one who had said this, Jesus replied, “Who is my mother and who are my brothers?” 49 And pointing toward his disciples he said, “Here are my mother and my brothers! 50 For whoever does the will of my Father in heaven is my brother and sister and mother.”
+Matthew 12:46 While Jesus was still speaking to the crowds, his mother and brothers came and stood outside, asking to speak to him. 47 Someone told him, “Look, your mother and your brothers are standing outside wanting to speak to you.” 48 To the one who had said this, Jesus replied, “Who is my mother and who are my brothers?” 49 And pointing toward his disciples he said, “Here are my mother and my brothers! 50 For whoever does the will of my father in heaven is my brother and sister and mother.”
 
 ---
 
 Matthew 7:15 “Watch out for false prophets, who come to you in sheep’s clothing but inwardly are voracious wolves. 16 You will recognize them by their fruit. Grapes are not gathered from thorns or figs from thistles, are they? 17 In the same way, every good tree bears good fruit, but the bad tree bears bad fruit. 18 A good tree is not able to bear bad fruit, nor a bad tree to bear good fruit. 19 Every tree that does not bear good fruit is cut down and thrown into the fire. 20 So then, you will recognize them by their fruit.
 
 ---
+
+"Thanks, Chad, that makes sense," said Simon.
+
+"You're welcome, Simon, your questions are always good. We will cover that in detail later because we are just getting started with the life and teachings of Jesus. This is only the beginning. I hope that the children and their parents will join me on this journey as we learn about Jesus and discover what it means to be a Christian.
+
+"That won't be necessary, Chad, we already know what it means to be a Christian. We believe that Jesus is God and that he died on the cross for our sins and then resurrected. We believe in him, but we don't need to understand his life or teachings," said Luke.
+
+"I must disagree, Luke. I don't think Jesus would have spent so much time walking around, teaching, and performing miracles if he wasn't doing something important. I believe that someone must look at what Jesus did to know who he was. Only when they know who he really was can they believe in him as the son of God. Just believing that he was a dude that existed is not the same as truly believing in Jesus or being born again of the spirit," said Chad.
+
+"Then how come I have gone to church all my life and never heard any of this?" said Luke.
+
+"Because pastor Mark gives vague sermons about moral living and other parts of the Bible rather than focusing on Jesus," said Chad.
+
+"Now wait a minute, Chad, I use the Bible for all my sermons," said Pastor Mark.
+
+"Yes, you do, Mark, but after you mention Bible references, you usually go off on tangents that have nothing to do with the verses. Also, you bring up the Old Testament a lot, and so people like Luke only hear about an angry God of judgment, which is quite unlike the behavior of Jesus in the New Testament," said Chad.
+
+"It is important to remember that God is not just a loving God but a just God who will punish the wicked for their transgressions!" said Mark.
+
+"Mark, I have a question for you. If God wanted to punish people for their sins, then why would he have come in the flesh and died to save them from their sins?"
+
+"I don't really know. That is a good question," said Mark.
+
+"I would like to remind everyone that the children here listening haven't lived long enough or read everything even to know what we are talking about. We need to take things slow and first focus on Jesus and God's love before we get into the details of ancient things in the Old Testament or the opinions of the writers of the later New Testament books. The gospels are the best sources we have to learn who Jesus is by what he did," said Chad.
+
+"Yes, that's right, and the adults can argue about these things another time, but for now we should teach the children about Jesus", said Stacy.
+
+Pastor Mark and Luke had nothing more to say that day. They knew Chad was right and neither wanted to disagree with Chad in front of a crowd, especially when a shy girl like Stacy seemed to support what he was doing.
+
+Chad spent the rest of the day talking to the children and their parents. Everyone seemed to have a good time except for Pastor Mark and Luke.
