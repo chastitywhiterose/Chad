@@ -1140,3 +1140,16 @@ Chad spent the rest of the day talking to the children and their parents. Everyo
 
 "Then you have made an idol out of the Bible. God existed before paper and ink and is still the king of the universe, not you. I am not sure exactly what to believe about the Bible either but I know Chad cares about doing the right thing and wants the children to know about Jesus," said Stacy.
 
+"Since when did you take Chad's side over your father?" said Mark.
+
+"There are sides now?! We should be on the same side. Besides, God is my father because we are all God's children. If you had been listening to what Chad was saying, you would understand that. I do regret yelling at you and slapping you but only because it was a bad example in front of the children. I don't know where Chad is going with this new Sunday School mission he started, but I want to be there and support him without getting in the way," said Stacy.
+
+"I see what's going on here! You like Chad!" said Mark.
+
+"Of course I like Chad. Everyone in Podunk likes Chad because he a good man who helps people in need and he loves children and animals," said Stacy.
+
+"No, they like Chad because he wins at soccer and he is rich. They will probably believe anything he says because he is the town superstar. Even so, I am glad you finally found a rich guy you can marry," said Mark.
+
+"Not that it is any of your business what relationship I have with Chad or anyone else, but you have the wrong idea. I love Chad for who he is, not because of his money, car, fame, or good looks, or his soccer playing golden retriever dog," said Stacy.
+
+"So you DO love Chad!" said Mark.
