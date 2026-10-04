@@ -1129,3 +1129,14 @@ Matthew 7:15 “Watch out for false prophets, who come to you in sheep’s cloth
 Pastor Mark and Luke had nothing more to say that day. They knew Chad was right and neither wanted to disagree with Chad in front of a crowd, especially when a shy girl like Stacy seemed to support what he was doing.
 
 Chad spent the rest of the day talking to the children and their parents. Everyone seemed to have a good time except for Pastor Mark and Luke.
+
+# Chapter 16: A Jealous Pastor
+
+"You embarrassed me out there today in front of everyone. You owe me an apology," said Pastor Mark.
+
+"Dad, I'm sorry that I slapped you, but I am also sorry that you can't accept that there are mistakes in the Bible and that Chad is a better preacher than you," said Stacy.
+
+"Chad isn't even a licensed preacher, pastor, or evangelist! Besides, we must maintain the inerrancy of scripture or people won't know what to believe!" said Mark.
+
+"Then you have made an idol out of the Bible. God existed before paper and ink and is still the king of the universe, not you. I am not sure exactly what to believe about the Bible either but I know Chad cares about doing the right thing and wants the children to know about Jesus," said Stacy.
+
