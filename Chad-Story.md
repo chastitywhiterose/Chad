@@ -1159,3 +1159,73 @@ Stacy paused for a minute, looking deep in thought, and then finally got up from
 "No, you aren't. We are not done talking about this!" said Mark.
 
 "Actually, Pastor Mark, we are. You just don't like that you are not in charge anymore, and you're no longer my dad either," said Stacy.
+
+# Chapter 17: Knowing the Right Move
+
+Chad and Matt were playing Chess at Chad's house. Not too many people knew about Chad's obsession with the game of Chess or why it was so important to him, although his profession was Soccer.
+
+"Queen's pawn to d4!" said Chad with weird enthusiasm.
+
+"Then I will also move my Queen's pawn two spaces forward", said Matt.
+
+"In that case, I will move my C-file pawn two squares to c4", said Chad.
+
+"You're going to let me take that pawn?" said Matt.
+
+"Only if you want to", said Chad.
+
+"I can't resist! Fine, I choose to capture the pawn on c4!" said Matt.
+
+"Perfect, now I move my king's pawn to e4", said Chad.
+
+"And I move my knight to f6", said Matt.
+
+"That's fine by me because I can capture your c4 pawn with my light-squared bishop", said Chad.
+
+"I see you captured back the pawn, but next I capture your e4 pawn with my knight. You're still a pawn down, and the game just barely started", said Matt.
+
+"I'm not worried about the e4 pawn; I have a bigger plan in mind. I move my knight to f3", said Chad.
+
+"Come on, Chad, I thought you were good at this game! All I have to do is move my bishop to g4, and now your knight can't move because I will capture your queen with the bishop if it does", said Matt.
+
+"I already know that, but I am still moving my knight to e5 anyway!" said Chad.
+
+"You're crazy, Chad. I take your queen on d1 with my bishop", said Matt.
+
+"And I move my bishop from c4 to f7. Checkmate!" said Chad.
+
+The Chess game was over after only 13 moves:
+
+1. d4 d5
+2. c4 dxc4
+3. e4 Nf6
+4. Bxc4 Nxe4
+5. Nf3 Bg4
+6. Ne5 Bxd1
+7. Bxf7#
+
+"Wait...what have you done?! My king has nowhere to go!" said Matt.
+
+"Yes, you can't take the bishop on f7 or move to d7 because the knight protects both those spots. It doesn't matter that I lost the queen", said Chad.
+
+"Where did I go wrong, and what should I have done differently?" said Matt.
+
+"If you had moved your king's pawn one square, the bishop could never have reached the f7 square. However, your eyes were on capturing my queen, and you forgot to leave an escape for your king", said Chad.
+
+"How did you figure out how to do tricks like this?"
+
+"I just sacrificed two pawns and my queen to win the game. It turns out that it doesn't matter how many pieces I lose as long as I have a way to trap your king. You could say that my queen sacrificed itself much like Jesus did for us", said Matt.
+
+"Chad, are you seriously making an allegory about Jesus using a Chess game? Don't you ever stop?" said Matt.
+
+"I don't know what to tell you, Matt. These things just come out of my mouth. I plan my Chess moves better than the things I say", said Chad.
+
+They both laughed at how absurd it sounded for Chad to say things without thinking.
+
+"Chad, I have to disagree. It seems like you put a lot of effort into everything you say and do. How do you always know the right move?" said Matt.
+
+"You flatter me too much, Matt. Yes, I usually plan my words and my Chess moves, but I don't always know the right move. Chess is simple, but sometimes real life is complex and I just plain don't know. Sometimes I pray about it or try to read something I remember from the life of Jesus that is relevant", said Chad.
+
+"Can you name one time you didn't know the right move?" said Matt.
+
+"Yeah, a couple weeks ago
