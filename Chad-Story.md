@@ -1204,6 +1204,8 @@ The Chess game was over after only 13 moves:
 6. Ne5 Bxd1
 7. Bxf7#
 
+![d4-d5-c4-dxc4-e4-nf6-bxc4-nxe4-nf3-bg4-ne5-bxd1-bxf7.png](https://chastitywhiterose.com/wp-content/uploads/2026/10/d4-d5-c4-dxc4-e4-nf6-bxc4-nxe4-nf3-bg4-ne5-bxd1-bxf7.png)
+
 "Wait...what have you done?! My king has nowhere to go!" said Matt.
 
 "Yes, you can't take the bishop on f7 or move to d7 because the knight protects both those spots. It doesn't matter that I lost the queen", said Chad.
@@ -1228,4 +1230,27 @@ They both laughed at how absurd it sounded for Chad to say things without thinki
 
 "Can you name one time you didn't know the right move?" said Matt.
 
-"Yeah, a couple weeks ago
+"Yeah, a couple weeks ago..." Chad started to say until
+
+**Knock Knock**
+
+"Someone is at the door" said Chad.
+
+"Expecting anyone?" said Matt.
+
+"No, it is unusual to have guests with no warning. Maybe I am in trouble for something" said Chad before answering the door.
+
+Chad opened the door and outside was Stacy.
+
+"Hi Chad, are you busy at the moment?" asked Stacy.
+
+"Never too busy for my friends. Matt is already here and I was just about to answer a question Matt asked me. Actually, your timing is perfect!" said Chad.
+
+"What do you mean, Chad?", Stacy said, looking extremely confused.
+
+"Stacy, sit down and you'll find out! Matt, to answer your question, the last time I didn't know the right move was after the Sunday when Luke brought hot dogs and told the story of Noah's Ark and the flood from Genesis chapter 6. I questioned whether I should even be involved or just quit participating in the Soccer and Sunday School ministry."
+
+"Why did you want to quit?" asked Matt.
+
+"Because I wasn't sure whether I was any more qualified to teach the Bible to these children than Luke was. Obviously he prefers the Old Testament and stories of God's judgment, but I prefer the New Testament and Jesus' teachings of love, forgiveness, generosity, and sacrifice. How can I know I am right?" said Chad.
+
