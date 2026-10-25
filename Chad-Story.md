@@ -795,6 +795,8 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "A butterfly starts as a caterpillar. Everyone expects it just to be what it was born as, but then it surprises everyone when it hides away for awhile and is then reborn as a new creature. It is like becoming a Christian by being born again.", said Stacy.
 
+![butterfly.png](https://chastitywhiterose.com/wp-content/uploads/2020/11/butterfly.png)
+
 "I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament sin as a sign that you became something new?" said Chad.
 
 "Exactly, Chad, 2 Corinthians 5:17 says:
@@ -1234,23 +1236,39 @@ They both laughed at how absurd it sounded for Chad to say things without thinki
 
 **Knock Knock**
 
-"Someone is at the door" said Chad.
+"Someone is at the door", said Chad.
 
 "Expecting anyone?" said Matt.
 
-"No, it is unusual to have guests with no warning. Maybe I am in trouble for something" said Chad before answering the door.
+"No, it is unusual to have guests with no warning. Maybe I am in trouble for something," said Chad before answering the door.
 
-Chad opened the door and outside was Stacy.
+Chad opened the door, and outside was Stacy.
 
-"Hi Chad, are you busy at the moment?" asked Stacy.
+"Hi Chad, I want to talk. Are you busy at the moment?" asked Stacy.
 
-"Never too busy for my friends. Matt is already here and I was just about to answer a question Matt asked me. Actually, your timing is perfect!" said Chad.
+"Never too busy for my friends. Matt is already here, and I was just about to answer a question Matt asked me. Actually, your timing is perfect!" said Chad.
 
-"What do you mean, Chad?", Stacy said, looking extremely confused.
+"What do you mean, Chad?" Stacy said, looking extremely confused.
 
-"Stacy, sit down and you'll find out! Matt, to answer your question, the last time I didn't know the right move was after the Sunday when Luke brought hot dogs and told the story of Noah's Ark and the flood from Genesis chapter 6. I questioned whether I should even be involved or just quit participating in the Soccer and Sunday School ministry."
+"Stacy, sit down, and you'll find out! Matt, to answer your question, the last time I didn't know the right move was after the Sunday when Luke brought hot dogs and told the story of Noah's Ark and the flood from Genesis chapter 6. I questioned whether I should even be involved or just quit participating in the Soccer and Sunday School ministry."
 
 "Why did you want to quit?" asked Matt.
 
 "Because I wasn't sure whether I was any more qualified to teach the Bible to these children than Luke was. Obviously he prefers the Old Testament and stories of God's judgment, but I prefer the New Testament and Jesus' teachings of love, forgiveness, generosity, and sacrifice. How can I know I am right?" said Chad.
+
+"So what happened? How did you decide to continue?" said Matt.
+
+"Stacy and I met by accident in the library, and she told me about how a butterfly has to be born again and become a new creature. That is when it hit me that Jesus is what the New Testament is about. Even now I can't be sure if my beliefs are correct, but I decided to follow my heart and the example set by Jesus. I don't believe in murder, nor do I think God commanded the killing of animals or humans as was written in the Old Testament."
+
+"But do you believe in the concept of sacrifice? Did Jesus really have to die for us?" said Matt.
+
+"I don't know if he had to, or if there may have been another way, but there is a difference between sacrificing someone else to save your own life and sacrificing yourself to save others. If it is what Jesus wanted to do, who am I to disagree?"
+
+"Just like the queen sacrifice in Chess", said Matt.
+
+"Correct, Matt, perhaps for some reason Jesus sacrificed himself to win a game that we don't even know the rules of. I just hope Jesus is a good Chess player and that he knows the right move even when I don't," said Chad.
+
+Stacy looked at the Chessboard for a minute.
+
+"I see...so that's what happened", said Stacy.
 
