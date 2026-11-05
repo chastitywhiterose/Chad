@@ -174,50 +174,34 @@ Chad gave him some tips that Matthew understood, and they did have some fun, but
 
 "I don't know what you mean at all," said Chad.
 
-"Chad, do you remember how you felt the first time you saw a naked
-girl?" asked Matt.
+"Chad, do you remember how you felt the first time you saw a naked girl?" asked Matt.
 
 "No, I have never seen a naked girl. I never hope to see one. But I can
 tell you anyhow I would rather see than be one," said Chad.
 
-"What do you mean, Chad? You dated just about every cheerleader in high school," said Matt.
+"What do you mean, Chad? Did you date anyone in high school?" asked Matt.
 
-"Some of them asked me out, but then they kind of lost interest when my
-idea of a date was playing soccer. A few times, we went out to dinner or
-a movie and had some good conversations, but that was all that
-happened," said Chad.
+"Some girls asked me out, but then they kind of lost interest when my idea of a date was playing soccer. A few times, we went out to dinner or a movie and had some good conversations, but that was all that happened," said Chad.
 
 "Chad, are you sure you're straight?" asked Matt.
 
-"Beats me. I guess I will find out when I get married. I am saving
-myself for marriage. I am a Christian and a virgin," said Chad.
+"Beats me. I guess I will find out when I get married. I am saving myself for marriage. I am a Christian and a virgin," said Chad.
 
 "So you're not mad at me for falling into sin," asked Matt.
 
-"I don't really know. In any case, it's not my place to judge. That's
-between you and God. But perhaps I can distract you from the porn with a good game of soccer. If that doesn't work, there is always the board
-game of chess! "Thanks, Chad. Please don't tell anyone about my secret, though," said Matt.
+"I don't really know. In any case, it's not my place to judge. That's between you and God. But perhaps I can distract you from the porn with a good game of soccer. If that doesn't work, there is always the board game of chess! "Thanks, Chad. Please don't tell anyone about my secret, though," said Matt.
 
-"I will keep your secret if you keep my secret about being a virgin,"
-said Chad.
+"I will keep your secret if you keep my secret about being a virgin," said Chad.
 
 "Chad, we have a deal!" said Matt.
 
-After this conversation, Chad and Matt had a better understanding of
-each other. Before this, Chad had never known Matt was gay, but what
-difference did it make? They had been friends since they were babies
-because all the children in the town had played together in this very
+After this conversation, Chad and Matt had a better understanding of each other. Before this, Chad had never known Matt was gay, but what difference did it make? They had been friends since they were babies because all the children in the town had played together in this very
 tight-knit community.
 
-Matt was actually more surprised that Chad was a virgin. It was unheard of for a man of his age to have never had sex with anyone. Of course, it
-was against the teachings of the church for anyone to have sex outside
-of marriage, but it still happened all the time, and so Matt had falsely
-assumed Chad was like the rest.
+Matt was actually more surprised that Chad was a virgin. It was unheard of for a man of his age to have never had sex with anyone. Of course, it was against the teachings of the church for anyone to have sex outside of marriage, but it still happened all the time, and so Matt had falsely assumed Chad was like the rest.
 
 
-If anything was clear, it was that Chad really was not like the other
-guys. He looked like a man. Chad had the best success and reputation in
-town, but his heart was kind. That day, Matt learned that he could talk
+If anything was clear, it was that Chad really was not like the other guys. He looked like a man. Chad had the best success and reputation in town, but his heart was kind. That day, Matt learned that he could talk
 to Chad about anything.
 
 # Chapter 4: The Town Soccer Game
@@ -1283,17 +1267,26 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 
 "Thanks, Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
 
-"Thanks Chad. Good night", said Matt
+"Thanks, Chad. Good night", said Matt.
 
 "Are you already planning our wedding, Chad?" said Stacy.
 
-"A good Chess player needs to think a few moves ahead of the current position" said Chad.
+"A good Chess player needs to think a few moves ahead of the current position", said Chad.
 
 "Well said, Chad, but does this mean you agree to be my boyfriend?" asked Stacy.
 
-"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision and I hope you are prepared for a real commitment, instead of an alliance of convenience.
+"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision, and I hope you are prepared for a real commitment, instead of an alliance of convenience.
 
 "What do you mean, irreversible?" asked Stacy.
 
-once we are known as a couple, you won't shake the reputation of being the only girl in Podunk to ever date Chad Isaac, the watermelon and tofu eating soccer star. Do you think you can handle the gossip that will happen in this small town where everybody and their dog knows what is happening?
+"Your life will change forever once we are known as a couple. You won't shake the reputation of being the only girlfriend of Chad Isaac, the watermelon and tofu-eating soccer star. Do you think you can handle the gossip that will happen in this small town where everybody and their dog knows what is happening?" asked Chad.
 
+"I am prepared for whatever comes our way, but what do you mean that I am your only girlfriend?" asked Stacy.
+
+"Believe me, Stacy, plenty of girls have flirted with me, and their parents have tried to play matchmaker, but I can tell when people are only interested in my money or social influence. I turn them all down because I need someone who matches my values, and you are the only one who talks to me like a person instead of dropping hints and doing the flirty eyes."
+
+"Speaking of which, be wary of my father. Reputation and money are all he cares about, but I am not like my father. I hope you understand that", said Stacy.
+
+"I figured that out the day you slapped Pastor Mark and told him off after he tried to fire me from being a volunteer Bible story teller. I know you are different, and I am glad you talked to me about this," said Chad.
+
+Chad and Stacy continued to talk about many things that night, including their relationship and future things they could do for the animals and the children of Podunk.
