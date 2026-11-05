@@ -1274,7 +1274,7 @@ Stacy looked at the Chessboard for a minute.
 
 "And if something goes wrong, will it ruin our friendship?"
 
-"What could possibly go wrong, Chad? But I promise you that if all else fails we will be friends and I still want to help you explore what it means to be a true Christian and teach the children with you."
+"What could possibly go wrong, Chad? But I promise you that if all else fails, we will remain friends, and I still want to help you explore what it means to be a true Christian and teach the children with you."
 
 Chad and Stacy had been talking so long that they completely forgot Matt was still sitting there watching them. He got up from his chair and started walking towards the door.
 
@@ -1282,4 +1282,4 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 
 "I will let you two lovebirds finish your conversation privately. I won't get in the way," said Matt.
 
-"Thanks Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
+"Thanks, Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
