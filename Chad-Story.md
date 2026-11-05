@@ -63,10 +63,9 @@ The four friends continued to talk about many different things as they ate pizza
 
 Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
+Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not Vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
-Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for
-anything else about him. He always said a dog was man's best friend.
+Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for anything else about him. He always said a dog was man's best friend.
 
 As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals, noticed how the dogs seemed to love him. She decided to start a conversation.
 
@@ -134,7 +133,7 @@ This statement by Stacy cut Chad to his core. He never thought about such a thin
 
 "No, Stacy, that's the most honest thing I have ever heard anyone in this small town say to me in my life. I do want to be a better voice for the animals, but I am still afraid," said Chad.
 
-"I am afraid too sometimes. My family doesn't approve of me being vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
+"I am afraid too sometimes. My family doesn't approve of me being Vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
 
 "That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy," said Chad.
 
@@ -490,7 +489,7 @@ instead, his jealousy turned into hatred.
 
 The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed only to make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
 
-Stacy was a little bit shy around people, and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
+Stacy was a little bit shy around people, and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a Vegan who cared about all the animals, not just dogs and cats.
 
 Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way, but watched and listened to anything happening in Chad's life that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
 
@@ -516,7 +515,7 @@ A few days later, Luke went to the animal shelter to tell Chad about this idea.
 
 "Hey Stacy, are you going to join us?" said Luke.
 
-"What for? I don't play soccer," Said Stacy.
+"What for? I don't play soccer," said Stacy.
 
 "Oh, I forgot to mention, this will also be an extension to the children's ministry. You can read the Bible to them or do another activity you like with them if you're interested," said Luke.
 
@@ -801,7 +800,7 @@ So I believe that we should follow the new testament whenever there is a conflic
 
 "OK, I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
 
-"Yes, bring your favorite vegan food and the King James Version Bible your father gave you," said Chad.
+"Yes, bring your favorite Vegan food and the King James Version Bible your father gave you," said Chad.
 
 "You know I can't read that confusing Bible, Chad," said Stacy.
 
@@ -1244,7 +1243,7 @@ Chad opened the door, and outside was Stacy.
 
 "But do you believe in the concept of sacrifice? Did Jesus really have to die for us?" said Matt.
 
-"I don't know if he had to, or if there may have been another way, but there is a difference between sacrificing someone else to save your own life and sacrificing yourself to save others. If it is what Jesus wanted to do, who am I to disagree?"
+"I don't know if he had to, or if there may have been another way, but there is a difference between sacrificing someone else to save your own life and sacrificing yourself to save others. If it is what Jesus wanted to do, who am I to disagree?" said Chad.
 
 "Just like the queen sacrifice in Chess", said Matt.
 
@@ -1283,3 +1282,18 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 "I will let you two lovebirds finish your conversation privately. I won't get in the way," said Matt.
 
 "Thanks, Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
+
+"Thanks Chad. Good night", said Matt
+
+"Are you already planning our wedding, Chad?" said Stacy.
+
+"A good Chess player needs to think a few moves ahead of the current position" said Chad.
+
+"Well said, Chad, but does this mean you agree to be my boyfriend?" asked Stacy.
+
+"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision and I hope you are prepared for a real commitment, instead of an alliance of convenience.
+
+"What do you mean, irreversible?" asked Stacy.
+
+once we are known as a couple, you won't shake the reputation of being the only girl in Podunk to ever date Chad Isaac, the watermelon and tofu eating soccer star. Do you think you can handle the gossip that will happen in this small town where everybody and their dog knows what is happening?
+
