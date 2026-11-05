@@ -144,17 +144,12 @@ Chad had met a new friend whom he could trust. He never really talked to Stacy b
 
 # Chapter 3: The Secrets of Chad and Matt
 
-Chad had made a promise to help train his friend Matt in soccer. Matt
-did not play professionally, but he was a friend that Chad had played
-with since childhood. The two did almost everything together.
+Chad had made a promise to help train his friend Matt in soccer. Matt did not play professionally, but he was a friend that Chad had played with since childhood. The two did almost everything together.
 
-One day, Chad called and asked Matt when they could schedule a time to
-practice soccer. Matt suggested Wednesday afternoon before church. They
-agreed to meet at 4 PM and practice for fun, and Chad would help Matt
+One day, Chad called and asked Matt when they could schedule a time to practice soccer. Matt suggested Wednesday afternoon before church. They agreed to meet at 4 PM and practice for fun, and Chad would help Matt
 get better at soccer.
 
-Chad gave him some tips that Matthew understood, and they did have some
-fun, but then Matt suddenly turned serious and asked.
+Chad gave him some tips that Matthew understood, and they did have some fun, but then Matt suddenly turned serious and asked.
 
 "Chad, why are you helping me? It's not like I play in your league, and you have more important things to do," said Matt
 
@@ -162,39 +157,26 @@ fun, but then Matt suddenly turned serious and asked.
 
 "We are friends no matter what, right, Chad?" asked Matt.
 
-"Of course, till death do us part!" joked Chad
+"Of course, till death do us part!" said Chad
 
 "Chad, there is something I need to tell you. I have done something horrible," said Matt.
 
 "Whatever you have done, I can forgive you. I am here if you need to talk about it," said Chad.
 
-"Thanks, Chad. I seem to have a problem with a porn addiction. I don't
-feel right about it, but sometimes I watch porn and pretend in my mind
-that I am one of those people. I can't have a marriage like other people, and sometimes I get jealous of those people I see in movies and
-even some porn sites," said Matt
+"Thanks, Chad. I seem to have a problem with a porn addiction. I don't feel right about it, but sometimes I watch porn and pretend in my mind that I am one of those people. I can't have a marriage like other people, and sometimes I get jealous of those people I see in movies and even some porn sites," said Matt
 
-"No need to feel that way, Matt. You're a good guy, and I am sure you'll
-find the right woman one day," said Chad.
+"No need to feel that way, Matt. You're a good guy, and I am sure you'll find the right woman one day," said Chad.
 
-"Chad, that's the problem. I am not looking for a woman. I am attracted
-to men. I'm gay, and I watch gay porn," said Matt.
+"Chad, that's the problem. I am not looking for a woman. I am attracted to men. I'm gay, and I watch gay porn," said Matt.
 
-"Well, I didn't see that one coming. Wait, gay porn exists? Is that even
-legal?" said Chad.
+"Well, I didn't see that one coming. Wait, gay porn exists? Is that even legal?" said Chad.
 
-"Chad, none of it is legal, but the internet can be a scary place
-sometimes. Sometimes, I see things I shouldn't, and I lose control
-because I enjoy seeing them, but later, I feel guilty about it. I
-promise myself that I won't look again, but then I remember what I saw, and I want to see it again because it made me feel something. It is as
-if there is a part of myself I have never understood," said Matt.
-
+"Chad, none of it is legal, but the internet can be a scary place sometimes. Sometimes, I see things I shouldn't, and I lose control because I enjoy seeing them, but later, I feel guilty about it. I promise myself that I won't look again, but then I remember what I saw, and I want to see it again because it made me feel something. It is as if there is a part of myself I have never understood," said Matt.
 
 "I don't know what you mean at all," said Chad.
 
-
 "Chad, do you remember how you felt the first time you saw a naked
 girl?" asked Matt.
-
 
 "No, I have never seen a naked girl. I never hope to see one. But I can
 tell you anyhow I would rather see than be one," said Chad.
@@ -1272,3 +1254,32 @@ Stacy looked at the Chessboard for a minute.
 
 "I see...so that's what happened", said Stacy.
 
+# Chapter 18: Alliance of Convenience
+
+“Stacy, what did you want to talk about?” asked Chad.
+
+"I wanted to ask something. Chad, would you officially be my boyfriend?" asked Stacy.
+
+"What do you mean by boyfriend? Does that change anything between us?" asked Chad.
+
+"No, it doesn't change anything between us. We will still be the same great friends we already are. However, I think we should seriously consider spending the rest of our lives together. It solves several problems," said Stacy.
+
+"What do you mean by problems?" asked Chad.
+
+"I have two problems. The first is that my dad and I just had a fight over you. He disagrees with what you are teaching the children about the Bible. Because I fully support what you are doing, he accuses me of being in love with you and taking your side because I am blinded by my feelings. Second, I am tired of church women trying to hook me up with their sons or having guys like Luke repeatedly ask me out on a date when I have made it very clear I am not interested. It would be convenient if people already knew I had a boyfriend," said Stacy.
+
+"So, are you in love with me, or is it just socially convenient for people in town to think we are together?" asked Chad.
+
+"I'm gonna be real with you, Chad. I have never met a Christian as true as you. You spend every second thinking about the right move both in Chess and in life by asking what Jesus would do. If I am falling in love with you, it is because of the person you are and who you have chosen to be. I do love you, but I am not sure in what way. I only ask that we explore where this goes," said Stacy.
+
+"And if something goes wrong, will it ruin our friendship?"
+
+"What could possibly go wrong, Chad? But I promise you that if all else fails we will be friends and I still want to help you explore what it means to be a true Christian and teach the children with you."
+
+Chad and Stacy had been talking so long that they completely forgot Matt was still sitting there watching them. He got up from his chair and started walking towards the door.
+
+"Hey Matt, where do you think you are going?" asked Chad.
+
+"I will let you two lovebirds finish your conversation privately. I won't get in the way," said Matt.
+
+"Thanks Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
