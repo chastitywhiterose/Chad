@@ -1417,5 +1417,25 @@ Genesis 4:1 And Adam knew Eve his wife; and she conceived , and bare Cain, and s
 
 "I can talk to him however I want. It's my show and I can do whatever I want" said Mark.
 
-"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First the King James Bible is useless for understanding sexual matters because it doesn't use our language. 
+"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First the King James Bible is useless for understanding sexual matters because it doesn't use our language. Some versions of the Bible, such as the International Standard Version, speak in the way we would say it and the men of Sodom did want to have sex with Lot's guests.
+
+---
+
+Genesis 19:5 They called out to Lot and asked, “Where are the men who came to visit you tonight? Bring them out to us so we can have sex with them!” - International Standard Version
+
+---
+
+"Thanks, Chad, but how are we supposed to know which version of the Bible we need to understand these Bible stories?" asked John.
+
+"That's a very good question, John. Hey Pastor, what do you think about Biblical versus modern language? Any advice for my friend John here?", asked Chad.
+
+"I only use the King James Bible because I can get copies cheap and it is out of copyright so I don't have to pay royalties for using it. But I recommend using whatever helps you in your studies. In any case, the point of the story is that the people in the city were so wicked that men wanted to have sex with men. Because Lot was righteous and try to protect his guests, they warned him to flee so that his family could be spared from God's judgement" said Mark.
+
+"I must disagree, Pastor. Lot was not righteous by any stretch of the imagination. Consider verse 5 where he offered his virgin daughters to the men of Sodom and asked them to rape is daughters instead of his guests. He doesn't sound like he is any better than the wicked men of Sodom", said Chad.
+
+"Look, Chad, I must agree with you on that. Lot was not perfect, but even he recognized that raping women is not as sinful as men raping other men. He was offering his daughters as the lesser of two evils", said Mark.
+
+"How does this story relate to the military policy of Don't Ask Don't Tell?" asked Chad.
+
+"My message is simple, as a society, the United States of America has become too accepting of homosexuals and their depraved lifestyle. We must vote against politicians who are lenient on sexual sin or else God will have no choice but to judge us just as he did Somon and Gomorrah" said Mark.
 
