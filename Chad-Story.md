@@ -1293,11 +1293,12 @@ Chad and Stacy continued to talk about many things that night, including their r
 
 # Chapter 19: Don't Ask Don't Tell
 
-It was Sunday Morning and Pastor Mark was in quite a foul mood. Of the 200 citizens of Podunk, about 50 of them attended church every Sunday most of the time. The only thing different on this Sunday was that Chad and Stacy walked in together and sat together. No one would have noticed except for the fact that it was common for Chad to sit with Matthew, John, and Luke in the same pew. Luke eyed Chad and Stacy suspiciously and with a hint of jealousy.
+It was Sunday morning, and Pastor Mark was in quite a foul mood. Of the 200 citizens of Podunk, about 50 of them attended church every Sunday, most of the time. The only thing different on this Sunday was that Chad and Stacy walked in together and sat together. No one would have noticed except for the fact that it was common for Chad to sit with Matthew, John, and Luke in the same pew. Luke eyed Chad and Stacy suspiciously, with a hint of jealousy.
 
 Pastor Mark started speaking as he usually did for his sermon:
 
-"Hello brothers and sisters in Christ, my message today is about an abomination that is infecting our culture, politics, religious institutions, and even the military. As some of your know, in 1993 the US. Military enacted the Don't Ask Don't Tell policy, which allowed homosexuals into the military as long as they remain secretive about their lifestyle. It is times like this when we must remember God's judgment on this depraved activity. Please turn with me to Genesis chapter 18 starting at verse 17. We shall read about God's judgement on the cities of Sodom and Gomorrah" said Mark.
+"Hello brothers and sisters in Christ, my message today is about an abomination that is infecting our culture, politics, religious institutions, and even the military. As some of you know, in 1993 the U.S. military enacted the Don't Ask, Don't Tell policy, which allowed homosexuals into the military as long as they remained secretive about their lifestyle. It is times like this when we must remember God's judgment on this depraved activity. Please turn with me to Genesis chapter 18 starting at verse 17. We shall read about God's judgment on the cities of Sodom and Gomorrah," said Mark.
+
 
 ---
 
@@ -1393,15 +1394,17 @@ Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate
 
 ---
 
-After Mark had finished reading the story of God destroying the cities of Sodom and Gomorrag, half of the people in the sanctuary were asleep. It was then that Chad's friend John decided to ask some questions.
+After Mark had finished reading the story of God destroying the cities of Sodom and Gomorrah, half of the people in the sanctuary were asleep. It was then that Chad's friend John decided to ask some questions.
 
-"Excuse me, pastor, but what is this story really about and how does it relate to the Don't Ask Don't Tell policy of 1993?" asked John.
+"Excuse me, pastor, but what is this story really about, and how does it relate to the Don't Ask, Don't Tell policy of 1993?" asked John.
 
-"The men of Sodom wanted to have sex with the angels who were staying at Lot's house. They thought they were men and wanted to perform sexual acts" said Mark.
+## Know in the Biblical Sense
+
+"The men of Sodom wanted to have sex with the angels who were staying at Lot's house. They thought they were men and wanted to perform sexual acts," said Mark.
 
 "It never said anything in chapter 19 about them wanting to have sex with the men. It said they wanted to know the men. I assume they wanted to know who the strangers were", said John.
 
-"No, it was ***know*** in the biblical sense. Like in Genesis 4 when Adam ***knew*** his wife, Eve, and she got pregnant and gave birth to her son, Cain.
+"No, it was ***know*** in the biblical sense. Like in Genesis 4, when Adam ***knew*** his wife, Eve, and she got pregnant and gave birth to her son, Cain.
 
 ---
 
@@ -1427,15 +1430,25 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 
 "Thanks, Chad, but how are we supposed to know which version of the Bible we need to understand these Bible stories?" asked John.
 
-"That's a very good question, John. Hey Pastor, what do you think about Biblical versus modern language? Any advice for my friend John here?", asked Chad.
+"That's a very good question, John. Hey Pastor, what do you think about Biblical versus modern language? Any advice for my friend John here?" asked Chad.
 
-"I only use the King James Bible because I can get copies cheap and it is out of copyright so I don't have to pay royalties for using it. But I recommend using whatever helps you in your studies. In any case, the point of the story is that the people in the city were so wicked that men wanted to have sex with men. Because Lot was righteous and try to protect his guests, they warned him to flee so that his family could be spared from God's judgement" said Mark.
+"I only use the King James Bible because I can get copies cheaply and it is out of copyright, so I don't have to pay royalties for using it. But I recommend using whatever helps you in your studies. In any case, the point of the story is that the people in the city were so wicked that men wanted to have sex with men. Because Lot was righteous and tried to protect his guests, they warned him to flee so that his family could be spared from God's judgment," said Mark.
 
-"I must disagree, Pastor. Lot was not righteous by any stretch of the imagination. Consider verse 5 where he offered his virgin daughters to the men of Sodom and asked them to rape is daughters instead of his guests. He doesn't sound like he is any better than the wicked men of Sodom", said Chad.
+"I must disagree, Pastor. Lot was not righteous by any stretch of the imagination. Consider verse 8, where he offered his virgin daughters to the men of Sodom and asked them to rape his daughters instead of his guests. He doesn't sound like he is any better than the wicked men of Sodom", said Chad.
 
 "Look, Chad, I must agree with you on that. Lot was not perfect, but even he recognized that raping women is not as sinful as men raping other men. He was offering his daughters as the lesser of two evils", said Mark.
 
-"How does this story relate to the military policy of Don't Ask Don't Tell?" asked Chad.
+"How does this story relate to the military policy of Don't Ask, Don't Tell?" asked Chad.
 
-"My message is simple, as a society, the United States of America has become too accepting of homosexuals and their depraved lifestyle. We must vote against politicians who are lenient on sexual sin or else God will have no choice but to judge us just as he did Somon and Gomorrah" said Mark.
+"My message is simple: as a society, the United States of America has become too accepting of homosexuals and their depraved lifestyle. We must vote against politicians who are lenient on sexual sin, or else God will have no choice but to judge us just as he did Sodom and Gomorrah," said Mark.
+
+"You think God will rain fire and brimstone on us for voting the wrong way?" asked Chad.
+
+"Precisely. That is why we must be reminded of God's judgment against wickedness" said Mark.
+
+"Pastor, I am not so sure this policy is all that bad. People should be able to keep their sexual lives private and nobody should ask them questions they are not prepared to answer, and they should not tell anyone who they cannot trust. Perhaps it is better that such discussions are left out of the military. Perhaps it is a policy we should follow outside of the military as well."
+
+"Madness, Chad, we must know who the homosexuals are so we can put them to death, just as it states in Leviticus
+
+"Leviticus 20:13 If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death ; their blood shall be upon them."
 
