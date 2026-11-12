@@ -1275,7 +1275,7 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 
 "Well said, Chad, but does this mean you agree to be my boyfriend?" asked Stacy.
 
-"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision, and I hope you are prepared for a real commitment, instead of an alliance of convenience.
+"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision, and I hope you are prepared for a real commitment, instead of an alliance of convenience" said Chad.
 
 "What do you mean, irreversible?" asked Stacy.
 
@@ -1290,3 +1290,132 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 "I figured that out the day you slapped Pastor Mark and told him off after he tried to fire me from being a volunteer Bible story teller. I know you are different, and I am glad you talked to me about this," said Chad.
 
 Chad and Stacy continued to talk about many things that night, including their relationship and future things they could do for the animals and the children of Podunk.
+
+# Chapter 19: Don't Ask Don't Tell
+
+It was Sunday Morning and Pastor Mark was in quite a foul mood. Of the 200 citizens of Podunk, about 50 of them attended church every Sunday most of the time. The only thing different on this Sunday was that Chad and Stacy walked in together and sat together. No one would have noticed except for the fact that it was common for Chad to sit with Matthew, John, and Luke in the same pew. Luke eyed Chad and Stacy suspiciously and with a hint of jealousy.
+
+Pastor Mark started speaking as he usually did for his sermon:
+
+"Hello brothers and sisters in Christ, my message today is about an abomination that is infecting our culture, politics, religious institutions, and even the military. As some of your know, in 1993 the US. Military enacted the Don't Ask Don't Tell policy, which allowed homosexuals into the military as long as they remain secretive about their lifestyle. It is times like this when we must remember God's judgment on this depraved activity. Please turn with me to Genesis chapter 18 starting at verse 17. We shall read about God's judgement on the cities of Sodom and Gomorrah" said Mark.
+
+---
+
+Genesis 18:17 And the LORD said , Shall I hide from Abraham that thing which I do ;
+
+18 Seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?
+
+19 For I know him, that he will command his children and his household after him, and they shall keep the way of the LORD, to do justice and judgment; that the LORD may bring upon Abraham that which he hath spoken of him.
+
+20 And the LORD said , Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;
+
+21 I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.
+
+22 And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.
+
+23 And Abraham drew near , and said , Wilt thou also destroy the righteous with the wicked?
+
+24 Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that are therein?
+
+25 That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?
+
+26 And the LORD said , If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.
+
+27 And Abraham answered and said , Behold now, I have taken upon me to speak unto the Lord, which am but dust and ashes:
+
+28 Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for lack of five? And he said , If I find there forty and five, I will not destroy it.
+
+29 And he spake unto him yet again , and said , Peradventure there shall be forty found there. And he said , I will not do it for forty's sake.
+
+30 And he said unto him, Oh let not the Lord be angry , and I will speak : Peradventure there shall thirty be found there. And he said , I will not do it, if I find thirty there.
+
+31 And he said , Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said , I will not destroy it for twenty's sake.
+
+32 And he said , Oh let not the Lord be angry , and I will speak yet but this once: Peradventure ten shall be found there. And he said , I will not destroy it for ten's sake.
+
+33 And the LORD went his way , as soon as he had left communing with Abraham: and Abraham returned unto his place.
+
+Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing them rose up to meet them; and he bowed himself with his face toward the ground;
+
+2 And he said , Behold now, my lords, turn in , I pray you, into your servant's house, and tarry all night , and wash your feet, and ye shall rise up early , and go on your ways. And they said , Nay; but we will abide in the street all night .
+
+3 And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat .
+
+4 But before they lay down , the men of the city, even the men of Sodom, compassed the house round , both old and young, all the people from every quarter:
+
+5 And they called unto Lot, and said unto him, Where are the men which came in to thee this night? bring them out unto us, that we may know them.
+
+6 And Lot went out at the door unto them, and shut the door after him,
+
+7 And said , I pray you, brethren, do not so wickedly .
+
+8 Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as is good in your eyes: only unto these men do nothing ; for therefore came they under the shadow of my roof.
+
+9 And they said , Stand back. And they said again, This one fellow came in to sojourn , and he will needs be a judge : now will we deal worse with thee, than with them. And they pressed sore upon the man, even Lot, and came near to break the door.
+
+10 But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.
+
+11 And they smote the men that were at the door of the house with blindness, both small and great: so that they wearied themselves to find the door.
+
+12 And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring them out of this place:
+
+13 For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.
+
+14 And Lot went out , and spake unto his sons in law, which married his daughters, and said , Up ,get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.
+
+15 And when the morning arose , then the angels hastened Lot, saying , Arise , take thy wife, and thy two daughters, which are here ; lest thou be consumed in the iniquity of the city. {are here: Heb. are found} {iniquity: or, punishment}
+
+16 And while he lingered , the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth , and set him without the city.
+
+17 And it came to pass, when they had brought them forth abroad, that he said , Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed .
+
+18 And Lot said unto them, Oh, not so, my Lord:
+
+19 Behold now, thy servant hath found grace in thy sight, and thou hast magnified thy mercy, which thou hast shewed unto me in saving my life; and I cannot escape to the mountain, lest some evil take me, and I die :
+
+20 Behold now, this city is near to flee unto, and it is a little one: Oh, let me escape thither, (is it not a little one?) and my soul shall live .
+
+21 And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken . {thee: Heb. thy face}
+
+22 Haste thee, escape thither; for I cannot do any thing till thou be come thither. Therefore the name of the city was called Zoar. {Zoar: that is, Little}
+
+23 The sun was risen upon the earth when Lot entered into Zoar. {risen: Heb. gone forth}
+
+24 Then the LORD rained upon Sodom and upon Gomorrah brimstone and fire from the LORD out of heaven;
+
+25 And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.
+
+26 But his wife looked back from behind him, and she became a pillar of salt.
+
+27 And Abraham gat up early in the morning to the place where he stood before the LORD:
+
+28 And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld , and, lo, the smoke of the country went up as the smoke of a furnace.
+
+---
+
+After Mark had finished reading the story of God destroying the cities of Sodom and Gomorrag, half of the people in the sanctuary were asleep. It was then that Chad's friend John decided to ask some questions.
+
+"Excuse me, pastor, but what is this story really about and how does it relate to the Don't Ask Don't Tell policy of 1993?" asked John.
+
+"The men of Sodom wanted to have sex with the angels who were staying at Lot's house. They thought they were men and wanted to perform sexual acts" said Mark.
+
+"It never said anything in chapter 19 about them wanting to have sex with the men. It said they wanted to know the men. I assume they wanted to know who the strangers were", said John.
+
+"No, it was ***know*** in the biblical sense. Like in Genesis 4 when Adam ***knew*** his wife, Eve, and she got pregnant and gave birth to her son, Cain.
+
+---
+
+Genesis 4:1 And Adam knew Eve his wife; and she conceived , and bare Cain, and said , I have gotten a man from the LORD.
+
+---
+
+"Okay, that makes sense in light of that, but how was I supposed to know what you are talking about when the King James Bible doesn't even agree with what you are trying to say" said John.
+
+"Just shut up and listen, John. I am the Pastor and I know things you don't. Let me finish and then ask questions later, you're interrupting my sermon", said Mark.
+
+"Hey, Pastor Mark, don't talk that way to my friend John" said Chad.
+
+"I can talk to him however I want. It's my show and I can do whatever I want" said Mark.
+
+"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First the King James Bible is useless for understanding sexual matters because it doesn't use our language. 
+
