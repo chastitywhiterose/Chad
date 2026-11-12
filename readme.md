@@ -63,10 +63,9 @@ The four friends continued to talk about many different things as they ate pizza
 
 Chad was a Vegan and did not eat or wear animal products. Whenever his friends questioned him about why he didn't eat the same foods as they did at social events, he said he ate only plants because it was healthier, and he was a sportsman who needed to be in top physical condition. All of this was true, but it wasn't the most important reason. The truth was that he did not want to eat animals because he believed killing them was wrong. He knew this idea would be mocked in his conservative religious town. Even his own family ate mostly meat and cheese, but they never questioned his diet; after all, they knew he was health-conscious.
 
-Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
+Chad did have a reputation for being an animal lover, but in the town of Podunk, everyone called themselves animal lovers, but they were not Vegan. Their love for animals extended only to dogs and cats. Chad volunteered at the animal shelter and cleaned up after the animals. He really wanted to be around all kinds of animals, but this was the best his town had to offer if someone wanted to be around a species other than humans.
 
-Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for
-anything else about him. He always said a dog was man's best friend.
+Most of all, Chad loved dogs, though. He had a Golden Retriever that he played sports with. The reason that Chad loved the game of Soccer more than other sports was that it was the easiest sport for his dog to play with him. Chad loved playing with his dog more than other humans because his dog would not judge him when he missed the goal or for anything else about him. He always said a dog was man's best friend.
 
 As Chad cleaned the cages, Stacy, who also worked there, feeding all the animals, noticed how the dogs seemed to love him. She decided to start a conversation.
 
@@ -134,7 +133,7 @@ This statement by Stacy cut Chad to his core. He never thought about such a thin
 
 "No, Stacy, that's the most honest thing I have ever heard anyone in this small town say to me in my life. I do want to be a better voice for the animals, but I am still afraid," said Chad.
 
-"I am afraid too sometimes. My family doesn't approve of me being vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
+"I am afraid too sometimes. My family doesn't approve of me being Vegan, and they say God intended humans to eat animals. My father quotes bible verses from Genesis and Leviticus at me sometimes when I don't eat with the family because I can't bear to witness them eating my friends," said Stacy.
 
 "That sounds really tough. I wouldn't know how to deal with that. I have never really dealt with conflict or controversy because I just say what I think will make others happy. Anyhow, thanks for talking to me, Stacy," said Chad.
 
@@ -144,17 +143,12 @@ Chad had met a new friend whom he could trust. He never really talked to Stacy b
 
 # Chapter 3: The Secrets of Chad and Matt
 
-Chad had made a promise to help train his friend Matt in soccer. Matt
-did not play professionally, but he was a friend that Chad had played
-with since childhood. The two did almost everything together.
+Chad had made a promise to help train his friend Matt in soccer. Matt did not play professionally, but he was a friend that Chad had played with since childhood. The two did almost everything together.
 
-One day, Chad called and asked Matt when they could schedule a time to
-practice soccer. Matt suggested Wednesday afternoon before church. They
-agreed to meet at 4 PM and practice for fun, and Chad would help Matt
+One day, Chad called and asked Matt when they could schedule a time to practice soccer. Matt suggested Wednesday afternoon before church. They agreed to meet at 4 PM and practice for fun, and Chad would help Matt
 get better at soccer.
 
-Chad gave him some tips that Matthew understood, and they did have some
-fun, but then Matt suddenly turned serious and asked.
+Chad gave him some tips that Matthew understood, and they did have some fun, but then Matt suddenly turned serious and asked.
 
 "Chad, why are you helping me? It's not like I play in your league, and you have more important things to do," said Matt
 
@@ -162,81 +156,52 @@ fun, but then Matt suddenly turned serious and asked.
 
 "We are friends no matter what, right, Chad?" asked Matt.
 
-"Of course, till death do us part!" joked Chad
+"Of course, till death do us part!" said Chad
 
 "Chad, there is something I need to tell you. I have done something horrible," said Matt.
 
 "Whatever you have done, I can forgive you. I am here if you need to talk about it," said Chad.
 
-"Thanks, Chad. I seem to have a problem with a porn addiction. I don't
-feel right about it, but sometimes I watch porn and pretend in my mind
-that I am one of those people. I can't have a marriage like other people, and sometimes I get jealous of those people I see in movies and
-even some porn sites," said Matt
+"Thanks, Chad. I seem to have a problem with a porn addiction. I don't feel right about it, but sometimes I watch porn and pretend in my mind that I am one of those people. I can't have a marriage like other people, and sometimes I get jealous of those people I see in movies and even some porn sites," said Matt
 
-"No need to feel that way, Matt. You're a good guy, and I am sure you'll
-find the right woman one day," said Chad.
+"No need to feel that way, Matt. You're a good guy, and I am sure you'll find the right woman one day," said Chad.
 
-"Chad, that's the problem. I am not looking for a woman. I am attracted
-to men. I'm gay, and I watch gay porn," said Matt.
+"Chad, that's the problem. I am not looking for a woman. I am attracted to men. I'm gay, and I watch gay porn," said Matt.
 
-"Well, I didn't see that one coming. Wait, gay porn exists? Is that even
-legal?" said Chad.
+"Well, I didn't see that one coming. Wait, gay porn exists? Is that even legal?" said Chad.
 
-"Chad, none of it is legal, but the internet can be a scary place
-sometimes. Sometimes, I see things I shouldn't, and I lose control
-because I enjoy seeing them, but later, I feel guilty about it. I
-promise myself that I won't look again, but then I remember what I saw, and I want to see it again because it made me feel something. It is as
-if there is a part of myself I have never understood," said Matt.
-
+"Chad, none of it is legal, but the internet can be a scary place sometimes. Sometimes, I see things I shouldn't, and I lose control because I enjoy seeing them, but later, I feel guilty about it. I promise myself that I won't look again, but then I remember what I saw, and I want to see it again because it made me feel something. It is as if there is a part of myself I have never understood," said Matt.
 
 "I don't know what you mean at all," said Chad.
 
-
-"Chad, do you remember how you felt the first time you saw a naked
-girl?" asked Matt.
-
+"Chad, do you remember how you felt the first time you saw a naked girl?" asked Matt.
 
 "No, I have never seen a naked girl. I never hope to see one. But I can
 tell you anyhow I would rather see than be one," said Chad.
 
-"What do you mean, Chad? You dated just about every cheerleader in high school," said Matt.
+"What do you mean, Chad? Did you date anyone in high school?" asked Matt.
 
-"Some of them asked me out, but then they kind of lost interest when my
-idea of a date was playing soccer. A few times, we went out to dinner or
-a movie and had some good conversations, but that was all that
-happened," said Chad.
+"Some girls asked me out, but then they kind of lost interest when my idea of a date was playing soccer. A few times, we went out to dinner or a movie and had some good conversations, but that was all that happened," said Chad.
 
 "Chad, are you sure you're straight?" asked Matt.
 
-"Beats me. I guess I will find out when I get married. I am saving
-myself for marriage. I am a Christian and a virgin," said Chad.
+"Beats me. I guess I will find out when I get married. I am saving myself for marriage. I am a Christian and a virgin," said Chad.
 
 "So you're not mad at me for falling into sin," asked Matt.
 
-"I don't really know. In any case, it's not my place to judge. That's
-between you and God. But perhaps I can distract you from the porn with a good game of soccer. If that doesn't work, there is always the board
-game of chess! "Thanks, Chad. Please don't tell anyone about my secret, though," said Matt.
+"I don't really know. In any case, it's not my place to judge. That's between you and God. But perhaps I can distract you from the porn with a good game of soccer. If that doesn't work, there is always the board game of chess! "Thanks, Chad. Please don't tell anyone about my secret, though," said Matt.
 
-"I will keep your secret if you keep my secret about being a virgin,"
-said Chad.
+"I will keep your secret if you keep my secret about being a virgin," said Chad.
 
 "Chad, we have a deal!" said Matt.
 
-After this conversation, Chad and Matt had a better understanding of
-each other. Before this, Chad had never known Matt was gay, but what
-difference did it make? They had been friends since they were babies
-because all the children in the town had played together in this very
+After this conversation, Chad and Matt had a better understanding of each other. Before this, Chad had never known Matt was gay, but what difference did it make? They had been friends since they were babies because all the children in the town had played together in this very
 tight-knit community.
 
-Matt was actually more surprised that Chad was a virgin. It was unheard of for a man of his age to have never had sex with anyone. Of course, it
-was against the teachings of the church for anyone to have sex outside
-of marriage, but it still happened all the time, and so Matt had falsely
-assumed Chad was like the rest.
+Matt was actually more surprised that Chad was a virgin. It was unheard of for a man of his age to have never had sex with anyone. Of course, it was against the teachings of the church for anyone to have sex outside of marriage, but it still happened all the time, and so Matt had falsely assumed Chad was like the rest.
 
 
-If anything was clear, it was that Chad really was not like the other
-guys. He looked like a man. Chad had the best success and reputation in
-town, but his heart was kind. That day, Matt learned that he could talk
+If anything was clear, it was that Chad really was not like the other guys. He looked like a man. Chad had the best success and reputation in town, but his heart was kind. That day, Matt learned that he could talk
 to Chad about anything.
 
 # Chapter 4: The Town Soccer Game
@@ -327,13 +292,9 @@ That's what a sissy literally means," said Stacy.
 
 Luke left to get some hot dogs and chips. The others continued speaking.
 
-"Nice response, Chad. Most guys would have gotten angry at being
-insulted like Luke was doing to you," said Stacy.
+"Nice response, Chad. Most guys would have gotten angry at being insulted like Luke was doing to you," said Stacy.
 
-"Don't worry about Luke. He's just mad because I get all the
-attention for sports. In fact, he deserves credit for part of the
-victory. He is a great guy as long as he plays sports and keeps his
-mouth shut," said Chad.
+"Don't worry about Luke. He's just mad because I get all the attention for sports. In fact, he deserves credit for part of the victory. He is a great guy as long as he plays sports and keeps his mouth shut," said Chad.
 
 "That's what I am worried about. From the abundance of the heart, the mouth speaks," said Stacy.
 
@@ -371,8 +332,7 @@ Luke remembered that there was a town newspaper that everyone read. He decided t
 
 Luke: Hello Gabby, can you tell me more about the newspaper and what you do?
 
-Gabby: Sure, Luke. People in the town tell me stories they have of
-events going on, such as sports games or local politics.
+Gabby: Sure, Luke. People in the town tell me stories they have of events going on, such as sports games or local politics.
 
 Luke: I think I may have a story for you, but I need to do some research.
 Can I buy any back issues that mention Chad, the soccer team captain?
@@ -512,7 +472,7 @@ instead, his jealousy turned into hatred.
 
 The newspaper article Gabby had written after her interview with Chad was read by every person in town. It seemed only to make Chad more popular and also inspired more people to visit the animal shelter. Few people had even been aware that there was an animal shelter in the corner of town,
 
-Stacy was a little bit shy around people, and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a vegan who cared about all the animals, not just dogs and cats.
+Stacy was a little bit shy around people, and she was not quite prepared to have so many people visit the animal shelter. People were adopting dogs and cats until only a few were left. Chad was glad he had inspired people to at least care about the dogs and cats, though he was not sure if anyone was aware that he was a Vegan who cared about all the animals, not just dogs and cats.
 
 Luke wanted to damage Chad's reputation somehow. He hadn't figured out a way, but watched and listened to anything happening in Chad's life that he could exploit. He decided to visit pastor Mark to see what he thought about Chad.
 
@@ -538,7 +498,7 @@ A few days later, Luke went to the animal shelter to tell Chad about this idea.
 
 "Hey Stacy, are you going to join us?" said Luke.
 
-"What for? I don't play soccer," Said Stacy.
+"What for? I don't play soccer," said Stacy.
 
 "Oh, I forgot to mention, this will also be an extension to the children's ministry. You can read the Bible to them or do another activity you like with them if you're interested," said Luke.
 
@@ -799,6 +759,8 @@ Meanwhile, Stacy had also become concerned. She took a break for several weeks a
 
 "A butterfly starts as a caterpillar. Everyone expects it just to be what it was born as, but then it surprises everyone when it hides away for awhile and is then reborn as a new creature. It is like becoming a Christian by being born again.", said Stacy.
 
+![butterfly.png](https://chastitywhiterose.com/wp-content/uploads/2020/11/butterfly.png)
+
 "I never really thought about it that way. I will remember that. So are you saying you committed an Old Testament sin as a sign that you became something new?" said Chad.
 
 "Exactly, Chad, 2 Corinthians 5:17 says:
@@ -821,7 +783,7 @@ So I believe that we should follow the new testament whenever there is a conflic
 
 "OK, I will do it for you, Chad. You have my curiosity. Do you need me to bring anything?" said Stacy.
 
-"Yes, bring your favorite vegan food and the King James Version Bible your father gave you," said Chad.
+"Yes, bring your favorite Vegan food and the King James Version Bible your father gave you," said Chad.
 
 "You know I can't read that confusing Bible, Chad," said Stacy.
 
@@ -1129,3 +1091,388 @@ Matthew 7:15 “Watch out for false prophets, who come to you in sheep’s cloth
 Pastor Mark and Luke had nothing more to say that day. They knew Chad was right and neither wanted to disagree with Chad in front of a crowd, especially when a shy girl like Stacy seemed to support what he was doing.
 
 Chad spent the rest of the day talking to the children and their parents. Everyone seemed to have a good time except for Pastor Mark and Luke.
+
+# Chapter 16: A Jealous Pastor
+
+"You embarrassed me out there today in front of everyone. You owe me an apology," said Pastor Mark.
+
+"Dad, I'm sorry that I slapped you, but I am also sorry that you can't accept that there are mistakes in the Bible and that Chad is a better preacher than you," said Stacy.
+
+"Chad isn't even a licensed preacher, pastor, or evangelist! Besides, we must maintain the inerrancy of scripture or people won't know what to believe!" said Mark.
+
+"Then you have made an idol out of the Bible. God existed before paper and ink and is still the king of the universe, not you. I am not sure exactly what to believe about the Bible either, but I know Chad cares about doing the right thing and wants the children to know about Jesus," said Stacy.
+
+"Since when did you take Chad's side over your father?" said Mark.
+
+"There are sides now?! We should be on the same side. Besides, God is my father because we are all God's children. If you had been listening to what Chad was saying, you would understand that. I do regret yelling at you and slapping you, but only because it was a bad example in front of the children. I don't know where Chad is going with this new Sunday School mission he started, but I want to be there and support him without getting in the way," said Stacy.
+
+"I see what's going on here! You like Chad!" said Mark.
+
+"Of course I like Chad. Everyone in Podunk likes Chad because he is a good man who helps people in need, and he loves children and animals," said Stacy.
+
+"No, they like Chad because he wins at soccer and he is rich. They will probably believe anything he says because he is the town superstar. Even so, I am glad you finally found a rich guy you can marry," said Mark.
+
+"Not that it is any of your business what relationship I have with Chad or anyone else, but you have the wrong idea. I love Chad for who he is, not because of his money, car, fame, or good looks, or his soccer-playing golden retriever dog," said Stacy.
+
+"So you DO love Chad!" said Mark.
+
+Stacy paused for a minute, looking deep in thought, and then finally got up from her chair at the dinner table. She grabbed her purse and walked out the front door of her dad's house.
+
+"Hey, where are you going!" yelled Pastor Mark.
+
+"I am gonna talk to my new boyfriend, Chad!" said Stacy.
+
+"No, you aren't. We are not done talking about this!" said Mark.
+
+"Actually, Pastor Mark, we are. You just don't like that you are not in charge anymore, and you're no longer my dad either," said Stacy.
+
+# Chapter 17: Knowing the Right Move
+
+Chad and Matt were playing Chess at Chad's house. Not too many people knew about Chad's obsession with the game of Chess or why it was so important to him, although his profession was Soccer.
+
+"Queen's pawn to d4!" said Chad with weird enthusiasm.
+
+"Then I will also move my Queen's pawn two spaces forward", said Matt.
+
+"In that case, I will move my C-file pawn two squares to c4", said Chad.
+
+"You're going to let me take that pawn?" said Matt.
+
+"Only if you want to", said Chad.
+
+"I can't resist! Fine, I choose to capture the pawn on c4!" said Matt.
+
+"Perfect, now I move my king's pawn to e4", said Chad.
+
+"And I move my knight to f6", said Matt.
+
+"That's fine by me because I can capture your c4 pawn with my light-squared bishop", said Chad.
+
+"I see you captured back the pawn, but next I capture your e4 pawn with my knight. You're still a pawn down, and the game just barely started", said Matt.
+
+"I'm not worried about the e4 pawn; I have a bigger plan in mind. I move my knight to f3", said Chad.
+
+"Come on, Chad, I thought you were good at this game! All I have to do is move my bishop to g4, and now your knight can't move because I will capture your queen with the bishop if it does", said Matt.
+
+"I already know that, but I am still moving my knight to e5 anyway!" said Chad.
+
+"You're crazy, Chad. I take your queen on d1 with my bishop", said Matt.
+
+"And I move my bishop from c4 to f7. Checkmate!" said Chad.
+
+The Chess game was over after only 13 moves:
+
+1. d4 d5
+2. c4 dxc4
+3. e4 Nf6
+4. Bxc4 Nxe4
+5. Nf3 Bg4
+6. Ne5 Bxd1
+7. Bxf7#
+
+![d4-d5-c4-dxc4-e4-nf6-bxc4-nxe4-nf3-bg4-ne5-bxd1-bxf7.png](https://chastitywhiterose.com/wp-content/uploads/2026/10/d4-d5-c4-dxc4-e4-nf6-bxc4-nxe4-nf3-bg4-ne5-bxd1-bxf7.png)
+
+"Wait...what have you done?! My king has nowhere to go!" said Matt.
+
+"Yes, you can't take the bishop on f7 or move to d7 because the knight protects both those spots. It doesn't matter that I lost the queen", said Chad.
+
+"Where did I go wrong, and what should I have done differently?" said Matt.
+
+"If you had moved your king's pawn one square, the bishop could never have reached the f7 square. However, your eyes were on capturing my queen, and you forgot to leave an escape for your king", said Chad.
+
+"How did you figure out how to do tricks like this?"
+
+"I just sacrificed two pawns and my queen to win the game. It turns out that it doesn't matter how many pieces I lose as long as I have a way to trap your king. You could say that my queen sacrificed itself much like Jesus did for us", said Matt.
+
+"Chad, are you seriously making an allegory about Jesus using a Chess game? Don't you ever stop?" said Matt.
+
+"I don't know what to tell you, Matt. These things just come out of my mouth. I plan my Chess moves better than the things I say", said Chad.
+
+They both laughed at how absurd it sounded for Chad to say things without thinking.
+
+"Chad, I have to disagree. It seems like you put a lot of effort into everything you say and do. How do you always know the right move?" said Matt.
+
+"You flatter me too much, Matt. Yes, I usually plan my words and my Chess moves, but I don't always know the right move. Chess is simple, but sometimes real life is complex and I just plain don't know. Sometimes I pray about it or try to read something I remember from the life of Jesus that is relevant", said Chad.
+
+"Can you name one time you didn't know the right move?" said Matt.
+
+"Yeah, a couple weeks ago..." Chad started to say until
+
+**Knock Knock**
+
+"Someone is at the door", said Chad.
+
+"Expecting anyone?" said Matt.
+
+"No, it is unusual to have guests with no warning. Maybe I am in trouble for something," said Chad before answering the door.
+
+Chad opened the door, and outside was Stacy.
+
+"Hi Chad, I want to talk. Are you busy at the moment?" asked Stacy.
+
+"Never too busy for my friends. Matt is already here, and I was just about to answer a question Matt asked me. Actually, your timing is perfect!" said Chad.
+
+"What do you mean, Chad?" Stacy said, looking extremely confused.
+
+"Stacy, sit down, and you'll find out! Matt, to answer your question, the last time I didn't know the right move was after the Sunday when Luke brought hot dogs and told the story of Noah's Ark and the flood from Genesis chapter 6. I questioned whether I should even be involved or just quit participating in the Soccer and Sunday School ministry."
+
+"Why did you want to quit?" asked Matt.
+
+"Because I wasn't sure whether I was any more qualified to teach the Bible to these children than Luke was. Obviously he prefers the Old Testament and stories of God's judgment, but I prefer the New Testament and Jesus' teachings of love, forgiveness, generosity, and sacrifice. How can I know I am right?" said Chad.
+
+"So what happened? How did you decide to continue?" said Matt.
+
+"Stacy and I met by accident in the library, and she told me about how a butterfly has to be born again and become a new creature. That is when it hit me that Jesus is what the New Testament is about. Even now I can't be sure if my beliefs are correct, but I decided to follow my heart and the example set by Jesus. I don't believe in murder, nor do I think God commanded the killing of animals or humans as was written in the Old Testament."
+
+"But do you believe in the concept of sacrifice? Did Jesus really have to die for us?" said Matt.
+
+"I don't know if he had to, or if there may have been another way, but there is a difference between sacrificing someone else to save your own life and sacrificing yourself to save others. If it is what Jesus wanted to do, who am I to disagree?" said Chad.
+
+"Just like the queen sacrifice in Chess", said Matt.
+
+"Correct, Matt, perhaps for some reason Jesus sacrificed himself to win a game that we don't even know the rules of. I just hope Jesus is a good Chess player and that he knows the right move even when I don't," said Chad.
+
+Stacy looked at the Chessboard for a minute.
+
+"I see...so that's what happened", said Stacy.
+
+# Chapter 18: Alliance of Convenience
+
+“Stacy, what did you want to talk about?” asked Chad.
+
+"I wanted to ask something. Chad, would you officially be my boyfriend?" asked Stacy.
+
+"What do you mean by boyfriend? Does that change anything between us?" asked Chad.
+
+"No, it doesn't change anything between us. We will still be the same great friends we already are. However, I think we should seriously consider spending the rest of our lives together. It solves several problems," said Stacy.
+
+"What do you mean by problems?" asked Chad.
+
+"I have two problems. The first is that my dad and I just had a fight over you. He disagrees with what you are teaching the children about the Bible. Because I fully support what you are doing, he accuses me of being in love with you and taking your side because I am blinded by my feelings. Second, I am tired of church women trying to hook me up with their sons or having guys like Luke repeatedly ask me out on a date when I have made it very clear I am not interested. It would be convenient if people already knew I had a boyfriend," said Stacy.
+
+"So, are you in love with me, or is it just socially convenient for people in town to think we are together?" asked Chad.
+
+"I'm gonna be real with you, Chad. I have never met a Christian as true as you. You spend every second thinking about the right move both in Chess and in life by asking what Jesus would do. If I am falling in love with you, it is because of the person you are and who you have chosen to be. I do love you, but I am not sure in what way. I only ask that we explore where this goes," said Stacy.
+
+"And if something goes wrong, will it ruin our friendship?"
+
+"What could possibly go wrong, Chad? But I promise you that if all else fails, we will remain friends, and I still want to help you explore what it means to be a true Christian and teach the children with you."
+
+Chad and Stacy had been talking so long that they completely forgot Matt was still sitting there watching them. He got up from his chair and started walking towards the door.
+
+"Hey Matt, where do you think you are going?" asked Chad.
+
+"I will let you two lovebirds finish your conversation privately. I won't get in the way," said Matt.
+
+"Thanks, Matt, but just remember, if Stacy and I have a wedding, you will be my best man," said Chad.
+
+"Thanks, Chad. Good night", said Matt.
+
+"Are you already planning our wedding, Chad?" said Stacy.
+
+"A good Chess player needs to think a few moves ahead of the current position", said Chad.
+
+"Well said, Chad, but does this mean you agree to be my boyfriend?" asked Stacy.
+
+"Stacy, you are the only girl in this town I know that is a Vegan who loves animals as much as I do. I also know that you have changed since I met you. You wanted to keep your life private and hesitated to join Soccer Sundays because you didn't want to be in the spotlight. Here you come asking me, the most famous guy in the town, to be your boyfriend. So yes, I agree, but this is an irreversible decision, and I hope you are prepared for a real commitment, instead of an alliance of convenience" said Chad.
+
+"What do you mean, irreversible?" asked Stacy.
+
+"Your life will change forever once we are known as a couple. You won't shake the reputation of being the only girlfriend of Chad Isaac, the watermelon and tofu-eating soccer star. Do you think you can handle the gossip that will happen in this small town where everybody and their dog knows what is happening?" asked Chad.
+
+"I am prepared for whatever comes our way, but what do you mean that I am your only girlfriend?" asked Stacy.
+
+"Believe me, Stacy, plenty of girls have flirted with me, and their parents have tried to play matchmaker, but I can tell when people are only interested in my money or social influence. I turn them all down because I need someone who matches my values, and you are the only one who talks to me like a person instead of dropping hints and doing the flirty eyes."
+
+"Speaking of which, be wary of my father. Reputation and money are all he cares about, but I am not like my father. I hope you understand that", said Stacy.
+
+"I figured that out the day you slapped Pastor Mark and told him off after he tried to fire me from being a volunteer Bible story teller. I know you are different, and I am glad you talked to me about this," said Chad.
+
+Chad and Stacy continued to talk about many things that night, including their relationship and future things they could do for the animals and the children of Podunk.
+
+# Chapter 19: Don't Ask, Don't Tell
+
+It was Sunday morning, and Pastor Mark was in quite a foul mood. Of the 200 citizens of Podunk, about 50 of them attended church every Sunday, most of the time. The only thing different on this Sunday was that Chad and Stacy walked in together and sat together. No one would have noticed except for the fact that it was common for Chad to sit with Matthew, John, and Luke in the same pew. Luke eyed Chad and Stacy suspiciously, with a hint of jealousy.
+
+Pastor Mark started speaking as he usually did for his sermon:
+
+"Hello brothers and sisters in Christ, my message today is about an abomination that is infecting our culture, politics, religious institutions, and even the military. As some of you know, in 1993 the U.S. military enacted the Don't Ask, Don't Tell policy, which allowed homosexuals into the military as long as they remained secretive about their lifestyle. It is times like this when we must remember God's judgment on this depraved activity. Please turn with me to Genesis chapter 18 starting at verse 17. We shall read about God's judgment on the cities of Sodom and Gomorrah," said Mark.
+
+
+---
+
+Genesis 18:17 And the LORD said, Shall I hide from Abraham that thing which I do ;
+
+18 Seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?
+
+19 For I know him, that he will command his children and his household after him, and they shall keep the way of the LORD, to do justice and judgment; that the LORD may bring upon Abraham that which he hath spoken of him.
+
+20 And the LORD said, Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;
+
+21 I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.
+
+22 And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.
+
+23 And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked?
+
+24 Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that are therein?
+
+25 That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?
+
+26 And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.
+
+27 And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which am but dust and ashes:
+
+28 Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for lack of five? And he said, If I find there forty and five, I will not destroy it.
+
+29 And he spake unto him yet again, and said, Peradventure there shall be forty found there. And he said, I will not do it for forty's sake.
+
+30 And he said unto him, Oh let not the Lord be angry, and I will speak: Peradventure there shall thirty be found there. And he said, I will not do it, if I find thirty there.
+
+31 And he said, Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said, I will not destroy it for twenty's sake.
+
+32 And he said, Oh let not the Lord be angry, and I will speak yet but this once: Peradventure ten shall be found there. And he said, I will not destroy it for ten's sake.
+
+33 And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.
+
+Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing them rose up to meet them; and he bowed himself with his face toward the ground;
+
+2 And he said, Behold now, my lords, turn in, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your ways. And they said, Nay; but we will abide in the street all night.
+
+3 And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat.
+
+4 But before they lay down, the men of the city, even the men of Sodom, compassed the house round, both old and young, all the people from every quarter:
+
+5 And they called unto Lot, and said unto him, Where are the men which came in to thee this night? bring them out unto us, that we may know them.
+
+6 And Lot went out at the door unto them, and shut the door after him,
+
+7 And said, I pray you, brethren, do not so wickedly.
+
+8 Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as is good in your eyes: only unto these men do nothing; for therefore came they under the shadow of my roof.
+
+9 And they said, Stand back. And they said again, This one fellow came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, even Lot, and came near to break the door.
+
+10 But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.
+
+11 And they smote the men that were at the door of the house with blindness, both small and great: so that they wearied themselves to find the door.
+
+12 And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring them out of this place:
+
+13 For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.
+
+14 And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.
+
+15 And when the morning arose, then the angels hastened Lot, saying, Arise, take thy wife, and thy two daughters, which are here; lest thou be consumed in the iniquity of the city. {are here: Heb. are found} {iniquity: or, punishment}
+
+16 And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth, and set him without the city.
+
+17 And it came to pass, when they had brought them forth abroad, that he said, Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed.
+
+18 And Lot said unto them, Oh, not so, my Lord:
+
+19 Behold now, thy servant hath found grace in thy sight, and thou hast magnified thy mercy, which thou hast shewed unto me in saving my life; and I cannot escape to the mountain, lest some evil take me, and I die :
+
+20 Behold now, this city is near to flee unto, and it is a little one: Oh, let me escape thither, (is it not a little one?) and my soul shall live.
+
+21 And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken. {thee: Heb. thy face}
+
+22 Haste thee, escape thither; for I cannot do any thing till thou be come thither. Therefore the name of the city was called Zoar. {Zoar: that is, Little}
+
+23 The sun was risen upon the earth when Lot entered into Zoar. {risen: Heb. gone forth}
+
+24 Then the LORD rained upon Sodom and upon Gomorrah brimstone and fire from the LORD out of heaven;
+
+25 And he overthrew those cities, and all the plain, and all the inhabitants of the cities, and that which grew upon the ground.
+
+26 But his wife looked back from behind him, and she became a pillar of salt.
+
+27 And Abraham gat up early in the morning to the place where he stood before the LORD:
+
+28 And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace.
+
+---
+
+After Mark had finished reading the story of God destroying the cities of Sodom and Gomorrah, half of the people in the sanctuary were asleep. It was then that Chad's friend John decided to ask some questions.
+
+"Excuse me, pastor, but what is this story really about, and how does it relate to the Don't Ask, Don't Tell policy of 1993?" asked John.
+
+## Know in the Biblical Sense
+
+"The men of Sodom wanted to have sex with the angels who were staying at Lot's house. They thought they were men and wanted to perform sexual acts," said Mark.
+
+"It never said anything in chapter 19 about them wanting to have sex with the men. It said they wanted to know the men. I assume they wanted to know who the strangers were", said John.
+
+"No, it was ***know*** in the biblical sense. Like in Genesis 4, when Adam ***knew*** his wife, Eve, and she got pregnant and gave birth to her son, Cain.
+
+---
+
+Genesis 4:1 And Adam knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.
+
+---
+
+"Okay, that makes sense in light of that, but how was I supposed to know what you are talking about when the King James Bible doesn't even agree with what you are trying to say", said John.
+
+"Just shut up and listen, John. I am the Pastor, and I know things you don't. Let me finish and then ask questions later, you're interrupting my sermon", said Mark.
+
+"Hey, Pastor Mark, don't talk that way to my friend John", said Chad.
+
+"I can talk to him however I want. It's my show, and I can do whatever I want," said Mark.
+
+"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First, the King James Bible is useless for understanding sexual matters because it doesn't use our language. Some versions of the Bible, such as the International Standard Version, speak in the way we would say it, and the men of Sodom did want to have sex with Lot's guests.
+
+---
+
+Genesis 19:5 They called out to Lot and asked, “Where are the men who came to visit you tonight? Bring them out to us so we can have sex with them!” - International Standard Version.
+
+---
+
+"Thanks, Chad, but how are we supposed to know which version of the Bible we need to understand these Bible stories?" asked John.
+
+"That's a very good question, John. Hey Pastor, what do you think about Biblical versus modern language? Any advice for my friend John here?" asked Chad.
+
+"I only use the King James Bible because I can get copies cheaply and it is out of copyright, so I don't have to pay royalties for using it. But I recommend using whatever helps you in your studies. In any case, the point of the story is that the people in the city were so wicked that men wanted to have sex with men. Because Lot was righteous and tried to protect his guests, they warned him to flee so that his family could be spared from God's judgment," said Mark.
+
+"I must disagree, Pastor. Lot was not righteous by any stretch of the imagination. Consider verse 8, where he offered his virgin daughters to the men of Sodom and asked them to rape his daughters instead of his guests. He doesn't sound like he is any better than the wicked men of Sodom", said Chad.
+
+"Look, Chad, I must agree with you on that. Lot was not perfect, but even he recognized that raping women is not as sinful as men raping other men. He was offering his daughters as the lesser of two evils", said Mark.
+
+"How does this story relate to the military policy of Don't Ask, Don't Tell?" asked Chad.
+
+"My message is simple: as a society, the United States of America has become too accepting of homosexuals and their depraved lifestyle. We must vote against politicians who are lenient on sexual sin, or else God will have no choice but to judge us just as he did Sodom and Gomorrah," said Mark.
+
+"You think God will rain fire and brimstone on us for voting the wrong way?" asked Chad.
+
+"Precisely. That is why we must be reminded of God's judgment against wickedness," said Mark.
+
+"Pastor, I am not so sure this policy is all that bad. People should be able to keep their sexual lives private, and nobody should ask them questions they are not prepared to answer, and they should not tell anyone who they cannot trust. Perhaps such discussions should be left out of the military. Perhaps it is a policy we should follow outside of the military as well."
+
+"Madness, Chad, we must know who the homosexuals are so we can put them to death, just as it states in Leviticus 20:13", said Mark.
+
+"Leviticus 20:13: If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death; their blood shall be upon them."
+
+"But what if they don't lie but tell the truth?" asked John.
+
+"Not that kind of ***lie***, John, once again, this is a reference to having a man having sex with a man as a man would with a woman", said Mark.
+
+"But if a man doesn't have a vagina, then another man couldn't possibly have sex with him, and so there could never have been a person who matched the description of Leviticus 20:13", said John.
+
+"We will discuss such matters privately; we are getting off topic", said Mark.
+
+"But I still have questions!" said John.
+
+"Okay, fine, one more question, then we wrap up for today, and I will continue this series of sermons", said Mark.
+
+"Suppose a man is drafted into the Army for a war, but he is a pacifist who does not want to kill people. Suppose he does a homosexual act so that he can get kicked out of the military where he never wanted to be in the first place. What exactly is a homosexual act, and what is the least sinful act he can commit to both be forgiven by God and yet also banned from the military for life?" said John.
+
+"I suppose he could kiss another man, or something like that, but why so many questions? Are you a homosexual?" asked Mark.
+
+## The Exodus of Podunk Church
+
+"Look, Pastor, I don't really know what a homosexual is, or even what a homosexual act is supposed to be. However, if I get drafted into the military, I want to know what my options are to get out. I am also trying to understand your sermon and this Bible story. You seem really vague, as if you are choosing your words carefully, or maybe you just really don't know what you are talking about," said John.
+
+"**ENOUGH!**, I won't allow my preaching to be disrespected, and I will not entertain such dangerous ideas. I want anyone who is either a homosexual or friends with a homosexual to leave my church, and preferably, leave my town and country," said Mark.
+
+"Your church? Your town? Your country? Sorry, Pastor, but we are all God's children and this whole planet is our home, but if you intend to kill homosexuals, then perhaps Don't Ask, Don't Tell is the policy I will follow from now on," said Chad.
+
+It was then that Chad stood up and walked out. Stacy walked out beside him. Then John and Matt followed after a minute. Gabby followed them all to see what Chad would do next. After all, the children of Podunk were expecting Chad and Luke to play soccer with them and teach them Bible stories, like they usually did after the regular Sunday service.

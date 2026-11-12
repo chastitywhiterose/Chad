@@ -332,8 +332,7 @@ Luke remembered that there was a town newspaper that everyone read. He decided t
 
 Luke: Hello Gabby, can you tell me more about the newspaper and what you do?
 
-Gabby: Sure, Luke. People in the town tell me stories they have of
-events going on, such as sports games or local politics.
+Gabby: Sure, Luke. People in the town tell me stories they have of events going on, such as sports games or local politics.
 
 Luke: I think I may have a story for you, but I need to do some research.
 Can I buy any back issues that mention Chad, the soccer team captain?
@@ -1291,7 +1290,7 @@ Chad and Stacy had been talking so long that they completely forgot Matt was sti
 
 Chad and Stacy continued to talk about many things that night, including their relationship and future things they could do for the animals and the children of Podunk.
 
-# Chapter 19: Don't Ask Don't Tell
+# Chapter 19: Don't Ask, Don't Tell
 
 It was Sunday morning, and Pastor Mark was in quite a foul mood. Of the 200 citizens of Podunk, about 50 of them attended church every Sunday, most of the time. The only thing different on this Sunday was that Chad and Stacy walked in together and sat together. No one would have noticed except for the fact that it was common for Chad to sit with Matthew, John, and Luke in the same pew. Luke eyed Chad and Stacy suspiciously, with a hint of jealousy.
 
@@ -1302,57 +1301,57 @@ Pastor Mark started speaking as he usually did for his sermon:
 
 ---
 
-Genesis 18:17 And the LORD said , Shall I hide from Abraham that thing which I do ;
+Genesis 18:17 And the LORD said, Shall I hide from Abraham that thing which I do ;
 
 18 Seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him?
 
 19 For I know him, that he will command his children and his household after him, and they shall keep the way of the LORD, to do justice and judgment; that the LORD may bring upon Abraham that which he hath spoken of him.
 
-20 And the LORD said , Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;
+20 And the LORD said, Because the cry of Sodom and Gomorrah is great, and because their sin is very grievous;
 
 21 I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.
 
 22 And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.
 
-23 And Abraham drew near , and said , Wilt thou also destroy the righteous with the wicked?
+23 And Abraham drew near, and said, Wilt thou also destroy the righteous with the wicked?
 
 24 Peradventure there be fifty righteous within the city: wilt thou also destroy and not spare the place for the fifty righteous that are therein?
 
 25 That be far from thee to do after this manner, to slay the righteous with the wicked: and that the righteous should be as the wicked, that be far from thee: Shall not the Judge of all the earth do right?
 
-26 And the LORD said , If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.
+26 And the LORD said, If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes.
 
-27 And Abraham answered and said , Behold now, I have taken upon me to speak unto the Lord, which am but dust and ashes:
+27 And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which am but dust and ashes:
 
-28 Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for lack of five? And he said , If I find there forty and five, I will not destroy it.
+28 Peradventure there shall lack five of the fifty righteous: wilt thou destroy all the city for lack of five? And he said, If I find there forty and five, I will not destroy it.
 
-29 And he spake unto him yet again , and said , Peradventure there shall be forty found there. And he said , I will not do it for forty's sake.
+29 And he spake unto him yet again, and said, Peradventure there shall be forty found there. And he said, I will not do it for forty's sake.
 
-30 And he said unto him, Oh let not the Lord be angry , and I will speak : Peradventure there shall thirty be found there. And he said , I will not do it, if I find thirty there.
+30 And he said unto him, Oh let not the Lord be angry, and I will speak: Peradventure there shall thirty be found there. And he said, I will not do it, if I find thirty there.
 
-31 And he said , Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said , I will not destroy it for twenty's sake.
+31 And he said, Behold now, I have taken upon me to speak unto the Lord: Peradventure there shall be twenty found there. And he said, I will not destroy it for twenty's sake.
 
-32 And he said , Oh let not the Lord be angry , and I will speak yet but this once: Peradventure ten shall be found there. And he said , I will not destroy it for ten's sake.
+32 And he said, Oh let not the Lord be angry, and I will speak yet but this once: Peradventure ten shall be found there. And he said, I will not destroy it for ten's sake.
 
-33 And the LORD went his way , as soon as he had left communing with Abraham: and Abraham returned unto his place.
+33 And the LORD went his way, as soon as he had left communing with Abraham: and Abraham returned unto his place.
 
 Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate of Sodom: and Lot seeing them rose up to meet them; and he bowed himself with his face toward the ground;
 
-2 And he said , Behold now, my lords, turn in , I pray you, into your servant's house, and tarry all night , and wash your feet, and ye shall rise up early , and go on your ways. And they said , Nay; but we will abide in the street all night .
+2 And he said, Behold now, my lords, turn in, I pray you, into your servant's house, and tarry all night, and wash your feet, and ye shall rise up early, and go on your ways. And they said, Nay; but we will abide in the street all night.
 
-3 And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat .
+3 And he pressed upon them greatly; and they turned in unto him, and entered into his house; and he made them a feast, and did bake unleavened bread, and they did eat.
 
-4 But before they lay down , the men of the city, even the men of Sodom, compassed the house round , both old and young, all the people from every quarter:
+4 But before they lay down, the men of the city, even the men of Sodom, compassed the house round, both old and young, all the people from every quarter:
 
 5 And they called unto Lot, and said unto him, Where are the men which came in to thee this night? bring them out unto us, that we may know them.
 
 6 And Lot went out at the door unto them, and shut the door after him,
 
-7 And said , I pray you, brethren, do not so wickedly .
+7 And said, I pray you, brethren, do not so wickedly.
 
-8 Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as is good in your eyes: only unto these men do nothing ; for therefore came they under the shadow of my roof.
+8 Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as is good in your eyes: only unto these men do nothing; for therefore came they under the shadow of my roof.
 
-9 And they said , Stand back. And they said again, This one fellow came in to sojourn , and he will needs be a judge : now will we deal worse with thee, than with them. And they pressed sore upon the man, even Lot, and came near to break the door.
+9 And they said, Stand back. And they said again, This one fellow came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, even Lot, and came near to break the door.
 
 10 But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.
 
@@ -1362,21 +1361,21 @@ Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate
 
 13 For we will destroy this place, because the cry of them is waxen great before the face of the LORD; and the LORD hath sent us to destroy it.
 
-14 And Lot went out , and spake unto his sons in law, which married his daughters, and said , Up ,get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.
+14 And Lot went out, and spake unto his sons in law, which married his daughters, and said, Up, get you out of this place; for the LORD will destroy this city. But he seemed as one that mocked unto his sons in law.
 
-15 And when the morning arose , then the angels hastened Lot, saying , Arise , take thy wife, and thy two daughters, which are here ; lest thou be consumed in the iniquity of the city. {are here: Heb. are found} {iniquity: or, punishment}
+15 And when the morning arose, then the angels hastened Lot, saying, Arise, take thy wife, and thy two daughters, which are here; lest thou be consumed in the iniquity of the city. {are here: Heb. are found} {iniquity: or, punishment}
 
-16 And while he lingered , the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth , and set him without the city.
+16 And while he lingered, the men laid hold upon his hand, and upon the hand of his wife, and upon the hand of his two daughters; the LORD being merciful unto him: and they brought him forth, and set him without the city.
 
-17 And it came to pass, when they had brought them forth abroad, that he said , Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed .
+17 And it came to pass, when they had brought them forth abroad, that he said, Escape for thy life; look not behind thee, neither stay thou in all the plain; escape to the mountain, lest thou be consumed.
 
 18 And Lot said unto them, Oh, not so, my Lord:
 
 19 Behold now, thy servant hath found grace in thy sight, and thou hast magnified thy mercy, which thou hast shewed unto me in saving my life; and I cannot escape to the mountain, lest some evil take me, and I die :
 
-20 Behold now, this city is near to flee unto, and it is a little one: Oh, let me escape thither, (is it not a little one?) and my soul shall live .
+20 Behold now, this city is near to flee unto, and it is a little one: Oh, let me escape thither, (is it not a little one?) and my soul shall live.
 
-21 And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken . {thee: Heb. thy face}
+21 And he said unto him, See, I have accepted thee concerning this thing also, that I will not overthrow this city, for the which thou hast spoken. {thee: Heb. thy face}
 
 22 Haste thee, escape thither; for I cannot do any thing till thou be come thither. Therefore the name of the city was called Zoar. {Zoar: that is, Little}
 
@@ -1390,7 +1389,7 @@ Genesis 19:1 And there came two angels to Sodom at even; and Lot sat in the gate
 
 27 And Abraham gat up early in the morning to the place where he stood before the LORD:
 
-28 And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld , and, lo, the smoke of the country went up as the smoke of a furnace.
+28 And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace.
 
 ---
 
@@ -1408,23 +1407,23 @@ After Mark had finished reading the story of God destroying the cities of Sodom 
 
 ---
 
-Genesis 4:1 And Adam knew Eve his wife; and she conceived , and bare Cain, and said , I have gotten a man from the LORD.
+Genesis 4:1 And Adam knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.
 
 ---
 
-"Okay, that makes sense in light of that, but how was I supposed to know what you are talking about when the King James Bible doesn't even agree with what you are trying to say" said John.
+"Okay, that makes sense in light of that, but how was I supposed to know what you are talking about when the King James Bible doesn't even agree with what you are trying to say", said John.
 
-"Just shut up and listen, John. I am the Pastor and I know things you don't. Let me finish and then ask questions later, you're interrupting my sermon", said Mark.
+"Just shut up and listen, John. I am the Pastor, and I know things you don't. Let me finish and then ask questions later, you're interrupting my sermon", said Mark.
 
-"Hey, Pastor Mark, don't talk that way to my friend John" said Chad.
+"Hey, Pastor Mark, don't talk that way to my friend John", said Chad.
 
-"I can talk to him however I want. It's my show and I can do whatever I want" said Mark.
+"I can talk to him however I want. It's my show, and I can do whatever I want," said Mark.
 
-"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First the King James Bible is useless for understanding sexual matters because it doesn't use our language. Some versions of the Bible, such as the International Standard Version, speak in the way we would say it and the men of Sodom did want to have sex with Lot's guests.
+"Your show? Then perhaps it is time for a commercial break! John, I can help with this. First, the King James Bible is useless for understanding sexual matters because it doesn't use our language. Some versions of the Bible, such as the International Standard Version, speak in the way we would say it, and the men of Sodom did want to have sex with Lot's guests.
 
 ---
 
-Genesis 19:5 They called out to Lot and asked, “Where are the men who came to visit you tonight? Bring them out to us so we can have sex with them!” - International Standard Version
+Genesis 19:5 They called out to Lot and asked, “Where are the men who came to visit you tonight? Bring them out to us so we can have sex with them!” - International Standard Version.
 
 ---
 
@@ -1454,19 +1453,26 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 
 "But what if they don't lie but tell the truth?" asked John.
 
-"Not that kind of ***lie***, John, once again, this is a reference to having a man having sex with a man as a man would with a woman" said Mark.
+"Not that kind of ***lie***, John, once again, this is a reference to having a man having sex with a man as a man would with a woman", said Mark.
 
-"But if a man doesn't have a vagina, then another man couldn't possible have sex with him and so there could never have been a person who matched the description of Leviticus 20:13" said John.
+"But if a man doesn't have a vagina, then another man couldn't possibly have sex with him, and so there could never have been a person who matched the description of Leviticus 20:13", said John.
 
-"We will discuss such matters privately, we are getting off topic" said Mark.
+"We will discuss such matters privately; we are getting off topic", said Mark.
 
 "But I still have questions!" said John.
 
-"Okay fine, one more question, then we wrap up for today and I will continue this series of sermons" said Mark.
+"Okay, fine, one more question, then we wrap up for today, and I will continue this series of sermons", said Mark.
 
-"Suppose a man is drafted into the Army for a war, but he is a pacifist who does not want to kill people. Suppose he does a homosexual act so that he can get kicked out of the military where he never wanted to be in the first place. What exactly is a homosexual act and which is the least sinful act he can commit to both be forgiven by God and yet also banned from the military for life?" said John.
+"Suppose a man is drafted into the Army for a war, but he is a pacifist who does not want to kill people. Suppose he does a homosexual act so that he can get kicked out of the military where he never wanted to be in the first place. What exactly is a homosexual act, and what is the least sinful act he can commit to both be forgiven by God and yet also banned from the military for life?" said John.
 
-"I suppose he could kiss another man, or something like that, but why so many questions, are you a homosexual?" asked Mark.
+"I suppose he could kiss another man, or something like that, but why so many questions? Are you a homosexual?" asked Mark.
 
-"Look, Pastor, I don't really know what a homosexual is, or even what a homosexual act is supposed to be. However, if I get drafted into military, I want to know what my options are to get out. I am also trying to understand your sermon and this Bible story. You seem really vague, as if you are choosing your words carefully, or maybe you just really don't know what you are talking about" said John.
+## The Exodus of Podunk Church
 
+"Look, Pastor, I don't really know what a homosexual is, or even what a homosexual act is supposed to be. However, if I get drafted into the military, I want to know what my options are to get out. I am also trying to understand your sermon and this Bible story. You seem really vague, as if you are choosing your words carefully, or maybe you just really don't know what you are talking about," said John.
+
+"**ENOUGH!**, I won't allow my preaching to be disrespected, and I will not entertain such dangerous ideas. I want anyone who is either a homosexual or friends with a homosexual to leave my church, and preferably, leave my town and country," said Mark.
+
+"Your church? Your town? Your country? Sorry, Pastor, but we are all God's children and this whole planet is our home, but if you intend to kill homosexuals, then perhaps Don't Ask, Don't Tell is the policy I will follow from now on," said Chad.
+
+It was then that Chad stood up and walked out. Stacy walked out beside him. Then John and Matt followed after a minute. Gabby followed them all to see what Chad would do next. After all, the children of Podunk were expecting Chad and Luke to play soccer with them and teach them Bible stories, like they usually did after the regular Sunday service.
