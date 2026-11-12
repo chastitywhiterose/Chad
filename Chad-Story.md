@@ -1444,11 +1444,29 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 
 "You think God will rain fire and brimstone on us for voting the wrong way?" asked Chad.
 
-"Precisely. That is why we must be reminded of God's judgment against wickedness" said Mark.
+"Precisely. That is why we must be reminded of God's judgment against wickedness," said Mark.
 
-"Pastor, I am not so sure this policy is all that bad. People should be able to keep their sexual lives private and nobody should ask them questions they are not prepared to answer, and they should not tell anyone who they cannot trust. Perhaps it is better that such discussions are left out of the military. Perhaps it is a policy we should follow outside of the military as well."
+"Pastor, I am not so sure this policy is all that bad. People should be able to keep their sexual lives private, and nobody should ask them questions they are not prepared to answer, and they should not tell anyone who they cannot trust. Perhaps such discussions should be left out of the military. Perhaps it is a policy we should follow outside of the military as well."
 
-"Madness, Chad, we must know who the homosexuals are so we can put them to death, just as it states in Leviticus
+"Madness, Chad, we must know who the homosexuals are so we can put them to death, just as it states in Leviticus 20:13", said Mark.
 
-"Leviticus 20:13 If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death ; their blood shall be upon them."
+"Leviticus 20:13: If a man also lie with mankind, as he lieth with a woman, both of them have committed an abomination: they shall surely be put to death; their blood shall be upon them."
+
+"But what if they don't lie but tell the truth?" asked John.
+
+"Not that kind of ***lie***, John, once again, this is a reference to having a man having sex with a man as a man would with a woman" said Mark.
+
+"But if a man doesn't have a vagina, then another man couldn't possible have sex with him and so there could never have been a person who matched the description of Leviticus 20:13" said John.
+
+"We will discuss such matters privately, we are getting off topic" said Mark.
+
+"But I still have questions!" said John.
+
+"Okay fine, one more question, then we wrap up for today and I will continue this series of sermons" said Mark.
+
+"Suppose a man is drafted into the Army for a war, but he is a pacifist who does not want to kill people. Suppose he does a homosexual act so that he can get kicked out of the military where he never wanted to be in the first place. What exactly is a homosexual act and which is the least sinful act he can commit to both be forgiven by God and yet also banned from the military for life?" said John.
+
+"I suppose he could kiss another man, or something like that, but why so many questions, are you a homosexual?" asked Mark.
+
+"Look, Pastor, I don't really know what a homosexual is, or even what a homosexual act is supposed to be. However, if I get drafted into military, I want to know what my options are to get out. I am also trying to understand your sermon and this Bible story. You seem really vague, as if you are choosing your words carefully, or maybe you just really don't know what you are talking about" said John.
 
