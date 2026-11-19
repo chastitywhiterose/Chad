@@ -1516,6 +1516,12 @@ The second man decided that if God and the people who called themselves Christia
 
 The third man was the cleverest of the three. He married a woman and even had children. He still had sexual thoughts about men all the time but he knew he could lie and convince people he was a normal straight man. Unlike the other two, he never left church, and he was so good at his deception that he was respected in his church and town. His wife and kids loved him too, but inside he was miserable, because he knew there was a part of him that he could not talk about to anyone, especially not God. Eventually, he died too.
 
-The three men who died met Jesus in heaven on the day of judgement.
+The three men who died met Jesus in heaven on the day of judgment. He said to them, "Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world."
+
+Then the homosexuals answered him, "Lord, what did we do to deserve to be let into heaven? We have not lived a righteous life."
+
+No, you didn't but you might have if it had not been for the hypocrites who told you that I was your enemy. I have always loved you and wished for you to live a life with the gifts I gave you to share with others and live honestly. It is time for you to start over learning who I really am.
+
+
 
 ---
