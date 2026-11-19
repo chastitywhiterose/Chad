@@ -1504,7 +1504,18 @@ Chad walked out of the church without a plan. He needed time to think about the 
 
 Pastor Mark and Luke had come outside and were watching Chad. He was nervous, but he also knew he hadn't done anything wrong.
 
-"I will tell you a story. This one isn't in the Bible anywhere, but it is something that could have happened to someone you know, or maybe even some of you in the future.
+"I will tell you a story. This one isn't in the Bible anywhere, but it is something that could have happened to someone you know, or maybe even some of you in the future," said Chad.
 
-Once upon a time, there were 3 gay men. The pastor of their church told them that God hated them and wanted to burn them in hell. The first man tried to hide his feelings and became a 
+---
 
+Once upon a time, there were 3 gay men. The pastor of their church often preached sermons about how God hated homosexual and wanted to burn them in hell. He also encouraged people to vote for politicians who would execute anyone found to be a homosexual.
+
+The first man tried to hide his feelings and became a hermit who had no friends and hid from everyone, afraid that they would find out he was a homosexual. He lived a sad life and then he died.
+
+The second man decided that if God and the people who called themselves Christians hated him so much, he might as well live the way he wants. He lived a life of pleasure, having sex with strangers, using drugs, and studied other religions, hoping to find a God or at least a community that could love him unconditionally. Eventually he died.
+
+The third man was the cleverest of the three. He married a woman and even had children. He still had sexual thoughts about men all the time but he knew he could lie and convince people he was a normal straight man. Unlike the other two, he never left church, and he was so good at his deception that he was respected in his church and town. His wife and kids loved him too, but inside he was miserable, because he knew there was a part of him that he could not talk about to anyone, especially not God. Eventually, he died too.
+
+The three men who died met Jesus in heaven on the day of judgement.
+
+---
