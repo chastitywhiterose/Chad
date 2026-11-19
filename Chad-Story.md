@@ -176,8 +176,7 @@ Chad gave him some tips that Matthew understood, and they did have some fun, but
 
 "Chad, do you remember how you felt the first time you saw a naked girl?" asked Matt.
 
-"No, I have never seen a naked girl. I never hope to see one. But I can
-tell you anyhow I would rather see than be one," said Chad.
+"No, I have never seen a naked girl. I never hope to see one. But I can tell you anyhow I would rather see than be one," said Chad.
 
 "What do you mean, Chad? Did you date anyone in high school?" asked Matt.
 
@@ -1476,3 +1475,36 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 "Your church? Your town? Your country? Sorry, Pastor, but we are all God's children and this whole planet is our home, but if you intend to kill homosexuals, then perhaps Don't Ask, Don't Tell is the policy I will follow from now on," said Chad.
 
 It was then that Chad stood up and walked out. Stacy walked out beside him. Then John and Matt followed after a minute. Gabby followed them all to see what Chad would do next. After all, the children of Podunk were expecting Chad and Luke to play soccer with them and teach them Bible stories, like they usually did after the regular Sunday service.
+
+# Chapter 20: The Parable of the 3 Gays
+
+Chad walked out of the church without a plan. He needed time to think about the pastor's sermon and what it meant for his friend Matt. In any case, he had no intention of going back to a church where homosexuals, or anyone who asked genuine questions was not welcome.
+
+"I can tell you're upset, Chad. Where are you going?" asked Stacy.
+
+"I have a place I go to be alone, think, and pray," said Chad.
+
+"Chad, Wait!" said John, chasing after him and Stacy.
+
+"What do you need, John?", asked Chad.
+
+"I am sorry if I caused you trouble by asking Pastor Mark so many questions," said John.
+
+"John, don't you EVER let someone make you feel bad for asking questions, especially about the Bible. I enjoyed your questions but Pastor Mark just doesn't want to admit he doesn't know what he is talking about, and he should never use his position to drag people into political conflict," said Chad.
+
+"Chad, will you tell us another story?" asked Trevor, the ten year old boy who frequently asked him questions.
+
+"Trevor, I would love to, but it appears I am not welcome at church and I may have to go away for awhile. I had a fight with Pastor Mark and I need some time to pray until I know the right thing to do," said Chad.
+
+"Just like Daniel would pray every day?" said Trevor.
+
+"Yes, just like Daniel," said Chad.
+
+"Tell us a story!" all the children shouted.
+
+Pastor Mark and Luke had come outside and were watching Chad. He was nervous, but he also knew he hadn't done anything wrong.
+
+"I will tell you a story. This one isn't in the Bible anywhere, but it is something that could have happened to someone you know, or maybe even some of you in the future.
+
+Once upon a time, there were 3 gay men. The pastor of their church told them that God hated them and wanted to burn them in hell. The first man tried to hide his feelings and became a 
+
