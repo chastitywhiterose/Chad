@@ -1476,25 +1476,25 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 
 It was then that Chad stood up and walked out. Stacy walked out beside him. Then John and Matt followed after a minute. Gabby followed them all to see what Chad would do next. After all, the children of Podunk were expecting Chad and Luke to play soccer with them and teach them Bible stories, like they usually did after the regular Sunday service.
 
-# Chapter 20: The Parable of the 3 Gays
+# Chapter 20: Chad tells a new Story
 
-Chad walked out of the church without a plan. He needed time to think about the pastor's sermon and what it meant for his friend Matt. In any case, he had no intention of going back to a church where homosexuals, or anyone who asked genuine questions was not welcome.
+Chad walked out of the church without a plan. He needed time to think about the pastor's sermon and what it meant for his friend Matt. In any case, he had no intention of going back to a church where homosexuals, or anyone who asked genuine questions, was not welcome.
 
 "I can tell you're upset, Chad. Where are you going?" asked Stacy.
 
 "I have a place I go to be alone, think, and pray," said Chad.
 
-"Chad, Wait!" said John, chasing after him and Stacy.
+"Chad, wait!" said John, chasing after him and Stacy.
 
-"What do you need, John?", asked Chad.
+"What do you need, John?" asked Chad.
 
 "I am sorry if I caused you trouble by asking Pastor Mark so many questions," said John.
 
-"John, don't you EVER let someone make you feel bad for asking questions, especially about the Bible. I enjoyed your questions but Pastor Mark just doesn't want to admit he doesn't know what he is talking about, and he should never use his position to drag people into political conflict," said Chad.
+"John, don't you EVER let someone make you feel bad for asking questions, especially about the Bible. I enjoyed your questions, but Pastor Mark just doesn't want to admit he doesn't know what he is talking about, and he should never use his position to drag people into political conflict," said Chad.
 
-"Chad, will you tell us another story?" asked Trevor, the ten year old boy who frequently asked him questions.
+"Chad, will you tell us another story?" asked Trevor, the ten-year-old boy who frequently asked him questions.
 
-"Trevor, I would love to, but it appears I am not welcome at church and I may have to go away for awhile. I had a fight with Pastor Mark and I need some time to pray until I know the right thing to do," said Chad.
+"Trevor, I would love to, but it appears I am not welcome at church and I may have to go away for a while. I had a fight with Pastor Mark, and I need some time to pray until I know the right thing to do," said Chad.
 
 "Just like Daniel would pray every day?" said Trevor.
 
@@ -1504,24 +1504,36 @@ Chad walked out of the church without a plan. He needed time to think about the 
 
 Pastor Mark and Luke had come outside and were watching Chad. He was nervous, but he also knew he hadn't done anything wrong.
 
-"I will tell you a story. This one isn't in the Bible anywhere, but it is something that could have happened to someone you know, or maybe even some of you in the future," said Chad.
+"I will tell you a new story. This one isn't written in the Bible exactly this way, but it is something that could have happened to someone you know, or maybe even some of you in the future," said Chad.
+
+## The Parable of the 3 Gays
 
 ---
 
-Once upon a time, there were 3 gay men. The pastor of their church often preached sermons about how God hated homosexual and wanted to burn them in hell. He also encouraged people to vote for politicians who would execute anyone found to be a homosexual.
+Once upon a time, there were 3 gay men. The pastor of their church often preached sermons about how God hated homosexuals and wanted to burn them in hell. He also encouraged people to vote for politicians who would execute anyone found to be a homosexual.
 
-The first man tried to hide his feelings and became a hermit who had no friends and hid from everyone, afraid that they would find out he was a homosexual. He lived a sad life and then he died.
+The first man tried to hide his feelings and became a hermit who had no friends and hid from everyone, afraid that they would find out he was a homosexual. He lived a sad, lonely life, and then he died.
 
-The second man decided that if God and the people who called themselves Christians hated him so much, he might as well live the way he wants. He lived a life of pleasure, having sex with strangers, using drugs, and studied other religions, hoping to find a God or at least a community that could love him unconditionally. Eventually he died.
+The second man decided that if God and the people who called themselves Christians hated him so much, he might as well live the way he wanted. He lived a life of pleasure, having sex with strangers, using drugs, and studying other religions, hoping to find a God or at least a community that could love him unconditionally. Eventually, he died.
 
-The third man was the cleverest of the three. He married a woman and even had children. He still had sexual thoughts about men all the time but he knew he could lie and convince people he was a normal straight man. Unlike the other two, he never left church, and he was so good at his deception that he was respected in his church and town. His wife and kids loved him too, but inside he was miserable, because he knew there was a part of him that he could not talk about to anyone, especially not God. Eventually, he died too.
+The third man was the cleverest of the three. He married a woman and even had children. He still had sexual thoughts about men all the time, but he knew he could lie and convince people he was a normal straight man. Unlike the other two, he never left church, and he was so good at his deception that he was respected in his church and town. His wife and kids loved him too, but inside he was miserable, because he knew there was a part of him that he could not talk about to anyone, especially not God. Eventually, he died too.
 
-The three men who died met Jesus in heaven on the day of judgment. He said to them, "Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world."
+Eventually came the day of judgment. Jesus assembled the people from all nations, both the living and the dead. He separated the righteous from the wicked as a shepherd separates the sheep from the goats. He put the righteous on his right and the wicked on the left.
 
-Then the homosexuals answered him, "Lord, what did we do to deserve to be let into heaven? We have not lived a righteous life."
+But in the middle remained the three homosexual men to be judged separately from the rest. He spoke to each of them. To the first man, he said, why did you hide yourself from the world and the talents I gave you. The first man said: "I was afraid, and so I hid myself because I knew I was a homosexual and did not want to be judged by humans, nor did I want to sin and displease you."
 
-No, you didn't but you might have if it had not been for the hypocrites who told you that I was your enemy. I have always loved you and wished for you to live a life with the gifts I gave you to share with others and live honestly. It is time for you to start over learning who I really am.
+To the second, Jesus asked, why did you leave the church and the religion of Christianity? The second man said: "I felt unwelcome because I was told that you hated me because I was a homosexual. Since I was doomed to hell from the start, I tried to live a good life and find a community where I could be accepted for who I was instead of pretending to be something or someone that I am not."
 
+To the third, he asked, why did you marry a woman you were not interested in and take your children to the same church that told you that you were hated by God because of your sexual orientation. The third man said: "I believed that if I pretended to be normal and did not commit homosexual acts, I could one day be cured of my desires and live the life I was supposed to live. Even though I did not feel right about deceiving those I love, I did it to protect them and not lead anyone else to sin.
 
+Then Jesus said to the 3 homosexual men, "Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world." Then the homosexuals answered him, "Lord, what did we do to deserve to be let into heaven? None of us have lived a righteous life."
+
+No, you didn't, but you might have if it had not been for the hypocrites who told you that I was your enemy. I have always loved you and wished for you to live a life with the gifts I gave you to share with others and live honestly. It is time for you to learn who I really am and start everything over again.
+
+Then Jesus said to the hypocrites: Depart from me, you accursed, into the eternal fire that has been prepared for the devil and his angels! For I was hungry and you gave me nothing to eat; I was thirsty, and you gave me nothing to drink. I was a stranger, and you did not receive me as a guest; naked and you did not clothe me, sick and in prison and you did not visit me. I was a homosexual, and you told me I was unlovable and unforgivable and excluded me from your community. I needed love and someone to talk to about my struggles, yet you did not listen.
+
+Then they too will answer, ‘Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not give you whatever you needed?’ When did we see you a homosexual and exclude you from the community and not listen to your needs?
+
+Then he answered them, ‘I tell you the truth, just as you did not do it for one of the least of these, you did not do it for me.’ And you will depart into eternal punishment, but the righteous into eternal life.”
 
 ---
