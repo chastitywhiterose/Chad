@@ -1,5 +1,7 @@
 # The Story of Chad
 
+The man who changed the heart of Podunk
+
 Chastity White Rose
 
 # Introduction
