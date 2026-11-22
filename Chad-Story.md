@@ -1476,7 +1476,7 @@ Genesis 19:5 They called out to Lot and asked, “Where are the men who came to 
 
 It was then that Chad stood up and walked out. Stacy walked out beside him. Then John and Matt followed after a minute. Gabby followed them all to see what Chad would do next. After all, the children of Podunk were expecting Chad and Luke to play soccer with them and teach them Bible stories, like they usually did after the regular Sunday service.
 
-# Chapter 20: Chad tells a new Story
+# Chapter 20: Let God be the Judge
 
 Chad walked out of the church without a plan. He needed time to think about the pastor's sermon and what it meant for his friend Matt. In any case, he had no intention of going back to a church where homosexuals, or anyone who asked genuine questions, was not welcome.
 
@@ -1537,3 +1537,31 @@ Then they too will answer, ‘Lord, when did we see you hungry or thirsty or a s
 Then he answered them, ‘I tell you the truth, just as you did not do it for one of the least of these, you did not do it for me.’ And you will depart into eternal punishment, but the righteous into eternal life.”
 
 ---
+
+After Chad told this story, Pastor Mark came and scolded Chad.
+
+"Chad, what are you teaching these children? This story isn't even in the Bible. I want you to leave and not tell these children any more stories and corrupt their minds with ideas that they can sin and still be loved. We must not tolerate heretical ideas such as unconditional love or forgiveness, especially for homosexuals," said Mark.
+
+"Thanks for repeating your message in front of the children. I want them to know exactly why I can no longer come to church and teach them stories. I will leave, because I can no longer listen to your misinterpretation of scripture for your own political agenda," said Chad.
+
+"You're the one who has a political agenda, Chad. Why do YOU care about the homosexuals? Where did you get such radical ideas?" said Mark.
+
+"Pastor, since you only understand King James English, I will make it simple for you. John chapter 3, verses 16 and 17 say:
+
+---
+
+John 3:16 For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life. 17 For God sent not his Son into the world to condemn the world; but that the world through him might be saved.
+
+---
+
+"So you see, ***whosoever*** includes homosexuals, along with any other group of people you hate. God still loves them, and I want them to know that."
+
+"It is not love to condone sin, Chad! We must eliminate people so that we do not bring God's judgment on us," said Mark.
+
+## The True Sin of Sodom and Gomorrah
+
+"Mark, I am afraid you missed the point of the Sodom and Gomorrah story. The men of Sodom were not only wicked because of homosexual rape, which I agree is evil, but also because of how they treated their guests. Lot, being as imperfect as he was, was still a more welcoming host to the angels who visited the town than anyone else was. The message of the story is that God does not destroy the righteous along with the wicked but separates them and judges them better than humans like you or I can. He spared Lot from judgment even though he was also a sinner and did some regrettable things, like offering his daughters to be raped by the men of the town," said Chad.
+
+"You are in no way qualified to tell me what the story means, and you are not nearly as much of a good Christian as I thought you were," said Mark.
+
+"Pastor, your opinion of me does not matter. This is between God and me. For the record, the story I told is based on God's judgment in Matthew chapter 25 starting at verse 31. I mixed it with the parable of the talents by turning the three servants into homosexuals for the sake of making a point that the children will remember on the day you tell them that God hates them for being homosexual or whatever sin you are picking on at the time. Am I perfect? No, but take the log out of your eye before you judge the speck in mine. I will let God be the judge between us when the day comes," said Chad.
